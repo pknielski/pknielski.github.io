@@ -3,16 +3,16 @@ published: true
 layout: post
 author: pam
 categories:
-  - messystove
+  - relational
 image: assets/images/stove2_Fotor.jpg
 featured: true
 comments: false
 hidden: true
-title: What is The Messy Stove?
+title: What is The Relational Kithcen?
 ---
-The messy stove is a place that is home.  It’s a well-used space, one that sometimes is overlooked because the people are too busy eating to care. A messy stove is one on which you know things are happening.  Good things.  Like food.  Good food.  Sometimes not so great food, because, hey, we are humans and we mess up.
+The relational kitchen is a place that is home.  It’s a well-used space, one that sometimes is overlooked because the people are too busy eating to care. A messy stove is one on which you know things are happening.  Good things.  Like food.  Good food.  Sometimes not so great food, because, hey, we are humans and we mess up.
 
-## What is The Messy Stove?
+## What is The Relational Kitchen?
 
 This is a space in which we are ok with our messy stoves (and by extension, our kitchens, houses, gardens, and lives), because we are feeding ourselves and others, both relationally and physically.  I’ll write more later about this, but for now, let’s operate on the premise that people thrive in places and spaces that make them feel good and make them feel connected to others. We all want to feel connected to others; indeed, we are hard-wired to do so.  However, we know that things get in the way of this. Let’s figure out how to manage those things and get more connected.
 
