@@ -4,7 +4,7 @@ layout: post
 author: pam
 categories:
   - messystove
-image: assets/images/16.jpg
+image: assets/images/stove2_Fotor.jpg
 featured: true
 comments: false
 hidden: true
