@@ -8,6 +8,7 @@ image: assets/images/stove2_Fotor.jpg
 featured: true
 comments: false
 hidden: true
+title: What is The Messy Stove?
 ---
 The messy stove is a place that is home.  It’s a well-used space, one that sometimes is overlooked because the people are too busy eating to care. A messy stove is one on which you know things are happening.  Good things.  Like food.  Good food.  Sometimes not so great food, because, hey, we are humans and we mess up.
 
