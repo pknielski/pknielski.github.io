@@ -8,9 +8,9 @@ image: assets/images/stove2_Fotor.jpg
 featured: true
 comments: false
 hidden: true
-title: What is The Relational Kithcen?
+title: What is The Relational Kitchen?
 ---
-The relational kitchen is a place that is home.  It’s a well-used space, one that sometimes is overlooked because the people are too busy eating to care. A messy stove is one on which you know things are happening.  Good things.  Like food.  Good food.  Sometimes not so great food, because, hey, we are humans and we mess up.
+The relational kitchen is a place that is home.  It’s a well-used space, one that sometimes is overlooked because the people are too busy eating to care. It's got a messy stove, so you know good stuff is happening. Like food.  Good food.  Sometimes not so great food, because, hey, we are humans and we mess up.
 
 ## What is The Relational Kitchen?
 
@@ -18,4 +18,4 @@ This is a space in which we are ok with our messy stoves (and by extension, our 
 
 One way to do this is through food.  While you don’t need to cook that food to connect, there is a special kind of feeling you get when someone likes the food that you’ve made.  It’s a form of love and connection.  
 
-OK, right about now you might be thinking (because you are on this page), “But I can’t cook!” Maybe you're feeling ashamed or upset that you can’t. Do not worry, because that’s what The Messy Stove is about.  I created this blog and channel for you, to show you how to cook for yourself and for the people in your life. You can learn to cook!  Let’s go!
+OK, right about now you might be thinking (because you are on this page), “But I can’t cook!” Maybe you're feeling ashamed or upset that you can’t. Do not worry, because that’s what The Relational Kitchen is about.  I created this blog and channel for you, to show you how to cook for yourself and for the people in your life. You can do this!  Let’s go!
