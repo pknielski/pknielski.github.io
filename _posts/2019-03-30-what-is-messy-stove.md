@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 layout: post
 author: pam
 categories:
@@ -15,4 +15,3 @@ This is a place/space in which we are ok with our messy stoves (and by extension
 One way to do this is through food.  While you don’t need to cook that food to connect, there is a special kind of feeling you get when someone likes the food that you’ve made.  It’s a form of love.  
 
 OK, right about now you might be thinking (because you are on this page), “But I can’t cook!” maybe feeling ashamed or upset that you can’t. Do not worry, because that’s what The Messy Stove is about.  I will show you how to cook.  Let’s go!
-
