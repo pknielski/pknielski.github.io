@@ -1,12 +1,15 @@
 ---
 layout: post
-title:  "Let's test spoilers"
+title: Let's test spoilers
 author: pam
-categories: [ Jekyll, tutorial ]
+categories:
+  - Jekyll
+  - tutorial
 image: assets/images/12.jpg
-featured: true
+featured: false
 hidden: true
 comments: false
+published: true
 ---
 
 Director Roland Suso Richter's enigmatic psychological thriller (direct to video/DVD) was based upon screenwriter Michael Cooney's own play "Point of Death" - a title that gave away the film's entire plot twist premise.
