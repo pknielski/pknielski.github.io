@@ -5,6 +5,8 @@ author: pam
 categories:
   - messystove
 image: assets/images/16.jpg
+featured: true
+comments: false
 ---
 ## What is The Messy Stove?
 
