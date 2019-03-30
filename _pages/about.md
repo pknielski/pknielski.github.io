@@ -1,6 +1,6 @@
 ---
 layout: page
-title: Mediumish Template for Jekyll
+title: About The Messy Stove
 permalink: /about
 comments: false
 published: true
