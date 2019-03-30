@@ -7,6 +7,7 @@ categories:
 image: assets/images/16.jpg
 featured: true
 comments: false
+hidden: true
 ---
 ## What is The Messy Stove?
 
