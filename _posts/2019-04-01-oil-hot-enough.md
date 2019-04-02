@@ -5,6 +5,7 @@ author: pam
 categories:
   - howto
 featured: true
+title: How to...make sure your oil is hot enough
 hidden: true
 ---
 ## How to...make sure your oil is hot enough
