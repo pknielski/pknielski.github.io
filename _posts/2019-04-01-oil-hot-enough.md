@@ -4,7 +4,7 @@ layout: post
 author: pam
 categories:
   - howto
-featured: true
+featured: false
 title: How to...make sure your oil is hot enough
 hidden: true
 ---
