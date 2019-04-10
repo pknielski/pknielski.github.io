@@ -3,7 +3,7 @@ published: false
 layout: post
 author: pam
 categories:
-  - how to
+  - howto
 image: null
 featured: false
 hidden: false
