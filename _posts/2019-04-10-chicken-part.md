@@ -41,7 +41,4 @@ Similar to the reasons for using bone-in chicken, using skin-on chicken adds to 
 
 
 
-I don't use legs (AKA drumsticks) or wings very often.  They simply aren't as versatile as breasts and thighs.  However, don't let that stop you if you like these parts. Fried chicken legs are awesome.  And buffalo wings rock. So if you want to use them, do it. 
-
-
-
+I don't use legs (AKA drumsticks) or wings very often.  They simply aren't as versatile as breasts and thighs.  However, don't let that stop you if you like these parts. Fried chicken legs are awesome.  And buffalo wings rock. So if you want to use them, do it.
