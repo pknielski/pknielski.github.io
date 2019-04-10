@@ -1,5 +1,12 @@
 ---
 published: false
+layout: post
+author: pam
+categories:
+  - how to
+image: null
+featured: false
+hidden: false
 ---
 ## How to…choose the right chicken part
 
@@ -30,5 +37,11 @@ However, the main decision-making factor has to do with the dish and its cooking
 
 Similar to the reasons for using bone-in chicken, using skin-on chicken adds to the flavor of the dish.  For instance, when braising, you would want skin-on because the browning of the chicken makes the fond, the brown stuff on the bottom of the pan that has lots of flavor.  You would not want skin-on if you are stir frying the chicken or poaching it (simmering it in liquid).
 
+### Legs and Wings
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+
+
+I don't use legs (AKA drumsticks) or wings very often.  They simply aren't as versatile as breasts and thighs.  However, don't let that stop you if you like these parts. Fried chicken legs are awesome.  And buffalo wings rock. So if you want to use them, do it. 
+
+
+
