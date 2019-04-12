@@ -8,7 +8,7 @@ image: null
 featured: false
 hidden: false
 ---
-How to…choose the right chicken part
+# How to…choose the right chicken part
 
 A chicken (actually any fowl) can be divided into four types of edible parts (there are inedible parts but we don’t need to talk about them right now) and categorized into two types of meat: white and dark. Dark meat (leg and thigh) has richer, tastier meat.  Breast meat can be dry; you probably already know this.
 
