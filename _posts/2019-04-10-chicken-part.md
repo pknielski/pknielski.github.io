@@ -7,6 +7,7 @@ categories:
 image: null
 featured: false
 hidden: false
+title: How to...choose the right chicken part
 ---
 # How to…choose the right chicken part
 
