@@ -1,6 +1,8 @@
 ---
-published: false
+published: true
 ---
 # Melon Eating
 
-Enter text in [Markdown](http://daringfireball.net/projects/markdown/). Use the toolbar above, or click the **?** button for formatting help.
+Here's a video of Melon the mystery snail eating.
+
+
