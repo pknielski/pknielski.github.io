@@ -2,6 +2,7 @@
 published: true
 layout: post
 author: pam
+image: assets/images/stove2_Fotor.jpg
 categories:
   - meals
 featured: false
