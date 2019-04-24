@@ -16,4 +16,8 @@ It gets hotter and more liquidy and looks almost wrinkly when you tilt the pan. 
 
 Not ready.
 
+[not ready](https://www.youtube.com/watch?v=zIRz8s_ud4I)
+
 Ready.
+
+[reacy](https://www.youtube.com/watch?v=pPbEDvsaQzA)
