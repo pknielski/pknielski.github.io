@@ -4,6 +4,7 @@ layout: post
 author: pam
 categories:
   - howto
+  image: assets/images/Oil and stove_Fotor.jpg
 featured: false
 title: How to...make sure your oil is hot enough
 hidden: false
