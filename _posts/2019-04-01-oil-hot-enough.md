@@ -9,7 +9,9 @@ featured: false
 title: How to...make sure your oil is hot enough
 hidden: false
 ---
-How do you know?  Two ways: when oil is hot, it will shimmer across the surface when you tilt the pan.  
+How do you know?  
+
+Two ways: when oil is hot, it will shimmer across the surface when you tilt the pan.  
 
 Shimmering Oil
 
