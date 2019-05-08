@@ -2,6 +2,7 @@
 published: true
 categories:
   - melon
+image: assets/images/Melon_Fotor.jpg  
 ---
 
 Here's a video of Melon the mystery snail eating.
