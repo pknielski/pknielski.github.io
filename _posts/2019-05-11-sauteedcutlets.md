@@ -2,7 +2,7 @@
 published: true
 layout: post
 author: pam
-image: /assets/images/done_chicken_Fotor.jpg
+image: assets/images/done_chicken_Fotor.jpg
 categories:
   - meals
 featured: false
