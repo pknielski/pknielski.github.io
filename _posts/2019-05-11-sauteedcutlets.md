@@ -33,13 +33,23 @@ Take out the breasts and take a look at how thick they are and if they taper on 
 
 ![single](/assets/images/Single_breast_Fotor.jpg)
 
+![sideview](/assets/images/Side_view_chicken_Fotor.jpg)
+
 The goal here is to make each cutlet (a thin piece of meat) approximately the same size.  Likely one side is thicker than the other. Cut the breast in half right around where it starts getting thinner.  Don’t worry about exactly where; you can cut it in half dead center and it will be fine.
 
 ![midpoint](/assets/images/Breast_midpoint_Fotor.jpg)
 
 Put your knife parallel to the cutting board and set it against the cut side of the breast. Place your non-dominant hand on top of the breast and slice the breast in half lengthwise. If your breast is partially frozen still, this step is easier.  However, you can still do it if it’s completely fresh or thawed.
 
-Do this with all of your breasts.
+![cuttingside](/assets/images/Cutting_breast_side_view_Fotor.jpg)
+
+![closeupside])/assets/images/Closeup_side_view_Fotor.jpg)
+
+Do this with all of your breasts. They will look like this:
+
+![cutbreasts](/assets/images/Cut_breasts_Fotor.jpg)
+
+![cutcutlets](/assets/images/Cut_cutlets_Fotor.jpg)
 
 Pour some flour in the shallow pan (I use this vintage banged up enameled pan I got at an auction decades ago. You can use a pie pan, a cake tin, or even a plate.  You just want something to put the flour in with a bit of protection from going outside onto your counter.). While you can season the flour, I find that I waste a great deal of herbs in getting the proportions right.  So I just season the cutlets themselves. How much flour?  Don’t worry about it.  If you don’t have enough, you can put more in.  It’s better to put too little in and then add more than to put in too much and waste it.
 
