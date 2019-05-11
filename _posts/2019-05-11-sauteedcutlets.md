@@ -10,12 +10,7 @@ comments: false
 hidden: false
 title: Sauteed Chicken Cutlets
 ---
-
-Sautéed Chicken Cutlets
-
-Adapted from Mark Bittman’s How to Cook Everything
-
-This is a great quick meal that I adapted from Mr. Bittman. It’s basically his recipe, with more explicit instructions. Thanks, Mr. Bittman!
+This is a great quick meal that I adapted from Mark Bittman's How to Cook Everything. It’s basically his recipe, with more explicit instructions. Thanks, Mr. Bittman!
 
 What you need
 
