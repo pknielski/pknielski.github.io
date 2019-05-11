@@ -81,7 +81,7 @@ So, back to it. Dredge the cutlets in flour.  Put the chicken cutlets one at a t
 
 Make sure your oil is hot enough.
 
-How do you know?  Two ways: when oil is hot, it will shimmer across the surface when you tilt the pan.  It gets hotter and more liquidy and looks almost wrinkly when you tilt the pan. The other way is to take a pinch of your flour and sprinkle it on the oil.  If it immediately sizzles, it’s ready. Check out this post for video: https://relationalkitchen.com/oil-hot-enough/
+How do you know?  Two ways: when oil is hot, it will shimmer across the surface when you tilt the pan.  It gets hotter and more liquidy and looks almost wrinkly when you tilt the pan. The other way is to take a pinch of your flour and sprinkle it on the oil.  If it immediately sizzles, it’s ready. [Check out this post for video.](https://relationalkitchen.com/oil-hot-enough/)
 
 A note on burner settings: Every stove it different.  Every burner is different.  Rather than trying to determine what number or setting is “medium high,” pay attention to the height of the flame and, more importantly, the behavior of your food in the pan.  In this recipe, you want the heat to be high enough to make a brown coating on your meat, but not so much that it fries the outside and leaves the inside raw.  I get it that this is hard to do and may feel overwhelming, but just remember that you can always put the meat back in the pan/in the oven/on the grill.  Overcooking is the sin, not undercooking. 
 
