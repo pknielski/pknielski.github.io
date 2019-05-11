@@ -113,6 +113,7 @@ Take out the chicken when you think it’s done. And that’s it!
 
 Note: If you are worried that it’s not done, cut into the middle and check.  You can always put it back in the pan; you can’t undo overcooking.
 
-However…if you want to use that lovely brown stuff (called fond) in the bottom of the pan, pour a little white wine in the bottom while the heat’s on low.  You will see it sizzle and steam. Take a wooden spoon or silicon spatula and scrape the bits from the bottom of the pan; they should come up easily.  Now that you have deglazed the pan, you can add a bit of chicken broth to it.  Turn off the heat, add about a tablespoon of (real) butter and a squeeze of lemon.  Stir it in and once the butter melts, pour it over your chicken.  Hooray!  You’ve just made a pan sauce!
+However…if you want to use that lovely brown stuff (called fond) in the bottom of the pan, pour a little white wine in the bottom while the heat’s on low.  You will see it sizzle and steam. Take a wooden spoon or silicone spatula and scrape the bits from the bottom of the pan; they should come up easily.  Now that you have deglazed (used an acidic liquid like wine or cider vinegar to disolve the fond/brown stuff) the pan, you can add a bit of chicken broth to it.  Turn off the heat, add about a tablespoon of (real) butter and a squeeze of lemon.  Stir it in and once the butter melts, pour it over your chicken.  Hooray!  You’ve just made a pan sauce!
 
+Even without the pan sauce, this is a tasty and easy dish. Hope you enjoy it!
 
