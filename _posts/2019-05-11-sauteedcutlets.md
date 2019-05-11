@@ -55,7 +55,11 @@ Pour some flour in the shallow pan (I use this vintage banged up enameled pan I 
 
 ![flour](/assets/images/Flour_in_pan2_Fotor.jpg)
 
-While you can season the flour, I find that I waste a great deal of herbs in getting the proportions right.  So I just season the cutlets themselves. How much flour?  Don’t worry about it.  If you don’t have enough, you can put more in.  It’s better to put too little in and then add more than to put in too much and waste it.
+While you can season the flour, I find that I waste a great deal of herbs in getting the proportions right.  So I just season the cutlets themselves. 
+
+![seasoned](/assets/images/Seasoned_cutlets_closeup_Fotor.jpg)
+
+How much flour?  Don’t worry about it.  If you don’t have enough, you can put more in.  It’s better to put too little in and then add more than to put in too much and waste it.
 
 Sprinkle salt, pepper, and whatever herbs you chose onto the cutlets.  Turn them over and do the other side.
 
@@ -68,6 +72,12 @@ Dredge the cutlets in flour.
 OK, I know you are thinking, WTF is dredging??  Simply stated, it’s coating the meat with flour, sometimes seasoned (salt, pepper, herbs), sometimes not (like now).  That’s it.
 
 So, back to it. Dredge the cutlets in flour.  Put the chicken cutlets one at a time in the flour, making sure all surfaces are covered in flour.  That being said, you don’t want to pack a whole bunch of flour on them because that will be gross.  Make sure all are covered lightly; you will shake off excess flour right before you put them in the skillet.
+
+![dredging1](/assets/images/Dredging1_Fotor.jpg)
+
+![dredging2](/assets/images/Dredging2_Fotor.jpg)
+
+![dredging3](/assets/images/Dredging3_Fotor.jpg)
 
 Make sure your oil is hot enough.
 
