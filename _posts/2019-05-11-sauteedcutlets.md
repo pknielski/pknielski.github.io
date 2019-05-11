@@ -81,13 +81,19 @@ So, back to it. Dredge the cutlets in flour.  Put the chicken cutlets one at a t
 
 Make sure your oil is hot enough.
 
-How do you know?  Two ways: when oil is hot, it will shimmer across the surface when you tilt the pan.  It gets hotter and more liquidy and looks almost wrinkly when you tilt the pan. The other way is to take a pinch of your flour and sprinkle it on the oil.  If it immediately sizzles, it’s ready.
+How do you know?  Two ways: when oil is hot, it will shimmer across the surface when you tilt the pan.  It gets hotter and more liquidy and looks almost wrinkly when you tilt the pan. The other way is to take a pinch of your flour and sprinkle it on the oil.  If it immediately sizzles, it’s ready. Check out this post for video: https://relationalkitchen.com/oil-hot-enough/
 
 A note on burner settings: Every stove it different.  Every burner is different.  Rather than trying to determine what number or setting is “medium high,” pay attention to the height of the flame and, more importantly, the behavior of your food in the pan.  In this recipe, you want the heat to be high enough to make a brown coating on your meat, but not so much that it fries the outside and leaves the inside raw.  I get it that this is hard to do and may feel overwhelming, but just remember that you can always put the meat back in the pan/in the oven/on the grill.  Overcooking is the sin, not undercooking. 
 
 When your oil is hot enough, pick up a cutlet with the tongs and gently lower it into the pan.  Gently because you don’t want the oil to splash out.  Continue with the others until they are all in the pan.  You should hear them sizzle. 
 
-Let them cook there for some minutes. How many?  Well, it depends. I would say let them cook for 3-5 minutes, then use your tongs to pick up and edge and peer beneath. If it sticks, let it be; that means it’s still forming that brown coating.  If it isn’t brown, put it back down.
+Let them cook there for some minutes. How many?  Well, it depends. I would say let them cook for 3-5 minutes, then use your tongs to pick up and edge and peer beneath. If it sticks, let it be; that means it’s still forming that brown coating.  If it isn’t brown, put it back down. One thing to watch for is the edges getting white (in other words, cooking).
+
+![inpan1](/assets/images/Cutlets_in_pan_Fotor.jpg)
+
+![inpan2](/assets/images/Cutlets_in_pan2_Fotor.jpg)
+
+![checking](/assets/images/Checking_cutlets2_Fotor.jpg)
 
 Once they are nice and brown (they won’t all be done at the same time so watch them), turn them over.  You may need a little more oil, but you may not.  You may need to lower the temperature a bit too as the pan will have had time to warm up. Repeat the checking process.
 
