@@ -51,9 +51,17 @@ Do this with all of your breasts. They will look like this:
 
 ![cutcutlets](/assets/images/Cut_cutlets_Fotor.jpg)
 
-Pour some flour in the shallow pan (I use this vintage banged up enameled pan I got at an auction decades ago. You can use a pie pan, a cake tin, or even a plate.  You just want something to put the flour in with a bit of protection from going outside onto your counter.). While you can season the flour, I find that I waste a great deal of herbs in getting the proportions right.  So I just season the cutlets themselves. How much flour?  Don’t worry about it.  If you don’t have enough, you can put more in.  It’s better to put too little in and then add more than to put in too much and waste it.
+Pour some flour in the shallow pan (I use this vintage banged up enameled pan I got at an auction decades ago. You can use a pie pan, a cake tin, or even a plate.  You just want something to put the flour in with a bit of protection from going outside onto your counter.). 
+
+![flour](/assets/images/Flour_in_pan2_Fotor.jpg)
+
+While you can season the flour, I find that I waste a great deal of herbs in getting the proportions right.  So I just season the cutlets themselves. How much flour?  Don’t worry about it.  If you don’t have enough, you can put more in.  It’s better to put too little in and then add more than to put in too much and waste it.
 
 Sprinkle salt, pepper, and whatever herbs you chose onto the cutlets.  Turn them over and do the other side.
+
+I like to use this in addition to salt and pepper. Great company, by the way, Penzeys.
+
+![finesherbes](/assets/images/Fines_Herbes_Fotor.jpg)
 
 Dredge the cutlets in flour.
 
