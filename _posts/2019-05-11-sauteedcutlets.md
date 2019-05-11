@@ -15,15 +15,25 @@ This is a great quick meal that I adapted from Mark Bittman's How to Cook Everyt
 What you need
 
 Chicken breasts-how many?  How many do you want to eat?
+
 Flour
+
 Salt
+
 Pepper
+
 Herbs-what kind?  I would suggest one or more of the following (all of these you can combine and they will be fine together): parsley, chervil, tarragon, chives, thyme. Smell and taste them to see what you like (tip-mix a bit with plain mashed potatoes or rice so you can better discern what they taste like in food).
+
 Oil-olive or canola
+
 Sautée or fry pan with sloping sides
+
 Tongs
+
 Shallow pan for dredging in flour
+
 Cutting board
+
 Knife
 
 First
