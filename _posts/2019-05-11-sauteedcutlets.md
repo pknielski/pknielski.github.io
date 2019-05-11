@@ -26,8 +26,6 @@ Shallow pan for dredging in flour
 Cutting board
 Knife
 
-![thawing](/assets/images/thawingtilapia_Fotor.jpg)
-
 First
 Take out the breasts and take a look at how thick they are and if they taper on one end.  
 
