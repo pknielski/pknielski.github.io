@@ -43,7 +43,7 @@ Put your knife parallel to the cutting board and set it against the cut side of 
 
 ![cuttingside](/assets/images/Cutting_breast_side_view_Fotor.jpg)
 
-![closeupside])/assets/images/Closeup_side_view_Fotor.jpg)
+![closeupside](/assets/images/Closeup_side_view_Fotor.jpg)
 
 Do this with all of your breasts. They will look like this:
 
