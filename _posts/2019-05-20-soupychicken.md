@@ -13,7 +13,7 @@ title: Soupy Chicken
 
 Soupy Chicken
 
-This is an easy dish for those times you forget to thaw the chicken.
+This is an easy dish for those times you forget to thaw the chicken. You can also just use what you have on hand, which is nice.  As long as you have broth and chicken, you should be good.
 
 Here’s what you will need to make it like I do.  However, you can change whatever you want-different vegetables, a different cut of chicken, different herbs. But try it once like this to get the hang of it and see how the flavors work together.
 
