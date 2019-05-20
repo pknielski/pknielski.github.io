@@ -1,5 +1,5 @@
 ---
-published: true
+published: false
 layout: post
 author: pam
 image: assets/images/SoupyChickenBowl_Fotor.jpg
@@ -10,8 +10,6 @@ comments: false
 hidden: false
 title: Soupy Chicken
 ---
-
-Soupy Chicken
 
 This is an easy dish for those times you forget to thaw the chicken. I threw this together one night when I had planned to do something else with the thighs but forgot to thaw them. I liked it so much I cook it all the time.
 
