@@ -71,15 +71,15 @@ Put your chicken in the pot and pour a box of chicken broth over it.  Add a cup 
 
 **Cut up the vegetables**
 
-**Carrots**
+*Carrots*
 
 They can be any size you want them to be.  Dice them, leave them in chunks, whatever.  You will want to peel them with a vegetable peeler, as the skins will slide off once the carrot is done, which is a little gross, I think, in the dish. Yes, there are vitamins in there.  There are also vitamins in the rest of the carrot.  Do what you like.
 
-**Onions**
+*Onions*
 
 I would recommend dicing them so you aren’t eating big chunks of onion.
 
-**Celery**
+*Celery*
 
 I cut them lengthwise and then dice them as I like smaller chunks.
 
