@@ -15,13 +15,13 @@ This is an easy dish for those times you forget to thaw the chicken. I threw thi
 
 Here’s what you will need to make it like I do.  However, you can change whatever you want-different vegetables, a different cut of chicken, different herbs. But try it once like this to get the hang of it and see how the flavors work together.
 
-*Chicken thighs*
+**Chicken thighs**
 
 They can be frozen. I would use ones with skin and bones; they are cheaper, and the skin and bones adds flavor. For this recipe I think there were four in the frozen block.
 
 ![thighs](/assets/images/Frozenthighs_Fotor.jpg)
 
-*White wine*
+**White wine**
 
 Any dry (meaning not sweet) white would work.  Do not use Riesling (unless you got it in Germany, where they aren’t sweet), Moscato, Champagne/sparkling wine/prosecco, or fruit wine. Pinot Grigio and Sauvignon Blanc are good choices.  Chardonnay might be a bit too oaky or buttery for cooking.
 
