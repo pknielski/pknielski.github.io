@@ -113,7 +113,7 @@ Also add salt and pepper.  How much?  Let’s say a teaspoon and a half of salt 
 
 When the pot is boiling, lower the heat to a simmer (basically you still want movement of the liquid, but not a lot). When everything is in, put the lid on.  Listen/watch for boiling; the lid will hold in more heat, with the result being the liquid being less of a simmer and more of a boil.
 
-Let it simmer until it’s done.  How will you know?  Check the carrots by poking a fork or knife into one.  If it goes in easily, it’s done.  Check the chicken by using the tongs to remove a chunk of meat.  If it comes off easily and isn’t pink or semi-translucent (see-through), it’s done.
+Let it simmer until it’s done.  How will you know?  Allow thirty minutes and then check. Check the carrots by poking a fork or knife into one.  If it goes in easily, it’s done.  Check the chicken by using the tongs to remove a chunk of meat.  If it comes off easily and isn’t pink or semi-translucent (see-through), it’s done. If  , keep it simmering. It will definitely be ready in an hour, and you really can't overcook this (unless you forget about it and all of the liquid evaporates. But you won't do that. That would take many hours, given how much liquid is in there).
 
 ![doneness](/assets/images/TestingDoneness_Fotor.jpg)
 
