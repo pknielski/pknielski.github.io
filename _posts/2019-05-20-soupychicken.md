@@ -121,7 +121,9 @@ Let it simmer until it’s done.  How will you know?  Check the carrots by pokin
 
 What I like to do is take the meat out and put it in a large bowl.  I then use two tongs to take off the skin and then remove all the meat from the bones.  Then I return the meat to the pot.  You can also use two forks; just remember it will be hot and the tongs give you greater distance from the heat. 
 
-Discards. This should also include the bay leaf; it is inedible.
+Discards 
+
+This should also include the bay leaf; it is inedible.
 
 ![discards](/assets/images/Discards_Fotor.jpg)
 
@@ -133,7 +135,7 @@ To accompany the soupy chicken, you can make rice or noodles.  I chose rice this
 
 That’s it!  You’re done!  Good job!
 
-![chickenremoved](/assets/images/ChickenInPotRemovedt_Fotor.jpg)
+![chickenremoved](/assets/images/ChickenInPotRemoved_Fotor.jpg)
 
 
 
