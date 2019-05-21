@@ -51,7 +51,7 @@ A clove or two, with the papery skin removed, should be fine. Dice or push it th
 
 Herbs
 
-This time I used fresh rosemary, thyme, and parsley because I happened to have them.  You can definitely use dried. How much?  Sprinkle them in and later when the meat is cooked, you can taste the broth and see what you think.  You can always add more.
+This time I used fresh parsely, thyme, and rosemary (left to right) because I happened to have them.  You can definitely use dried. How much?  Sprinkle them in and later when the meat is cooked, you can taste the broth and see what you think.  You can always add more.
 
 ![herbs](/assets/images/Herbs_Fotor.jpg)
 
