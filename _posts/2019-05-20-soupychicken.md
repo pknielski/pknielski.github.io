@@ -25,61 +25,61 @@ They can be frozen. I would use ones with skin and bones; they are cheaper, and 
 
 Any dry (meaning not sweet) white would work.  Do not use Riesling (unless you got it in Germany, where they aren’t sweet), Moscato, Champagne/sparkling wine/prosecco, or fruit wine. Pinot Grigio and Sauvignon Blanc are good choices.  Chardonnay might be a bit too oaky or buttery for cooking.
 
-Chicken broth 
+**Chicken broth** 
 
 I like unsalted so I can control the seasonings myself.
 
 ![broth](/assets/images/WineBroth_Fotor.jpg)
 
-Carrots
+**Carrots**
 
 How many?  How much do you like carrots?  Use that many.
 
-Celery
+**Celery**
 
 One stalk should be fine. 
 
-Onion
+**Onion**
 
 One small/medium one or half of one of those giant ones you see.  Can be white or yellow, but don’t use the sweet ones.  They are more expensive, and the sweetness will be wasted as the onions will be cooked.
 
-Garlic
+**Garlic**
 
 A clove or two, with the papery skin removed, should be fine. Dice or push it through a press.
 
 ![veg](/assets/images/CarrotCeleryOnion_Fotor.jpg)
 
-Herbs
+**Herbs**
 
 This time I used fresh parsely, thyme, and rosemary (left to right) because I happened to have them.  You can definitely use dried. How much?  Sprinkle them in and later when the meat is cooked, you can taste the broth and see what you think.  You can always add more.
 
 ![herbs](/assets/images/Herbs_Fotor.jpg)
 
-Big pot with lid
+**Big pot with lid**
 
 Here’s mine.  It’s called a Dutch oven. It is truly one of the most versatile pots I own.  I use it for all sorts of dishes: braised meat, popcorn, stews, risotto. Yes, those Le Creuset Dutch ovens are beautiful, but you can’t sear/brown meat in them.  Ask me how I know this.  Not a Le Creuset; thankfully, one much cheaper, but the nice finish is brown and damaged. I still use it, though.
 
 ![pot](/assets/images/PotOnStove_Fotor.jpg)
 
-Tongs
+**Tongs**
 
 Best kitchen implement ever.  I have three and could use more.
 
-How to make it
+**How to make it**
 
 Put your chicken in the pot and pour a box of chicken broth over it.  Add a cup or so of wine. Put the heat on high while you cut up the vegetables. Note: make sure there is liquid in the pot before you turn on the heat. Otherwise, you will get spatter and evaporation if you add it after the pot is hot.
 
-Cut up the vegetables
+**Cut up the vegetables**
 
-Carrots
+**Carrots**
 
 They can be any size you want them to be.  Dice them, leave them in chunks, whatever.  You will want to peel them with a vegetable peeler, as the skins will slide off once the carrot is done, which is a little gross, I think, in the dish. Yes, there are vitamins in there.  There are also vitamins in the rest of the carrot.  Do what you like.
 
-Onions
+**Onions**
 
 I would recommend dicing them so you aren’t eating big chunks of onion.
 
-Celery
+**Celery**
 
 I cut them lengthwise and then dice them as I like smaller chunks.
 
@@ -89,19 +89,19 @@ I cut them lengthwise and then dice them as I like smaller chunks.
 
 Once the veg is cut, add them to the pot.  
 
-Herbs
+**Herbs**
 
 If using fresh, you will want to chop them into fine pieces.  Except for the thyme: you can pull off the little leaves by holding the stalk in one hand and pulling the fingers of the opposite hand down the stalk in the opposite direction of growth.  Basically, you are stripping the leaves from the stalk. If this doesn’t make sense, don’t worry. Take the leaves off however it works for you.
 
-Parsley
+**Parsley**
 
 ![parsley](/assets/images/Parsley_Fotor.jpg)
 
-Rosemary
+**Rosemary**
 
 ![rosemary](/assets/images/Rosemary_Fotor.jpg)
 
-Thyme
+**Thyme**
 
 ![thyme](/assets/images/Thyme_Fotor.jpg)
 
@@ -121,7 +121,7 @@ Let it simmer until it’s done.  How will you know?  Check the carrots by pokin
 
 What I like to do is take the meat out and put it in a large bowl.  I then use two tongs to take off the skin and then remove all the meat from the bones.  Then I return the meat to the pot.  You can also use two forks; just remember it will be hot and the tongs give you greater distance from the heat. 
 
-Discards 
+**Discards** 
 
 This should also include the bay leaf; it is inedible.
 
