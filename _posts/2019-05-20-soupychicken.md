@@ -121,6 +121,8 @@ Let it simmer until it’s done.  How will you know?  Check the carrots by pokin
 
 What I like to do is take the meat out and put it in a large bowl.  I then use two tongs to take off the skin and then remove all the meat from the bones.  Then I return the meat to the pot.  You can also use two forks; just remember it will be hot and the tongs give you greater distance from the heat. 
 
+Discards. This should also include the bay leaf; it is inedible.
+
 ![discards](/assets/images/Discards_Fotor.jpg)
 
 Taste the broth and adjust seasonings. Basically, that just means you see if there’s enough salt, pepper, and herbs to your liking.  If you don’t know how much of something to add, take a bit of broth out and put it in a mug or coffee cup.  Add your seasonings to that and taste.  That way, if you add too much, you won’t have ruined the entire dish.  Remember, you can put more in, but you can’t take any out.
