@@ -43,6 +43,12 @@ Onion
 
 One small/medium one or half of one of those giant ones you see.  Can be white or yellow, but don’t use the sweet ones.  They are more expensive, and the sweetness will be wasted as the onions will be cooked.
 
+Garlic
+
+A clove or two, with the papery skin removed, should be fine. Dice or push it through a press.
+
+![veg](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+
 Herbs
 
 This time I used fresh rosemary, thyme, and parsley because I happened to have them.  You can definitely use dried. How much?  Sprinkle them in and later when the meat is cooked, you can taste the broth and see what you think.  You can always add more.
@@ -50,11 +56,13 @@ This time I used fresh rosemary, thyme, and parsley because I happened to have t
 ![herbs](/assets/images/Herbs_Fotor.jpg)
 
 Big pot with lid
+
 Here’s mine.  It’s called a Dutch oven. It is truly one of the most versatile pots I own.  I use it for all sorts of dishes: braised meat, popcorn, stews, risotto. Yes, those Le Creuset Dutch ovens are beautiful, but you can’t sear/brown meat in them.  Ask me how I know this.  Not a Le Creuset; thankfully, one much cheaper, but the nice finish is brown and damaged. I still use it, though.
 
 ![pot](/assets/images/PotOnStove_Fotor.jpg)
 
 Tongs
+
 Best kitchen implement ever.  I have three and could use more.
 
 How to make it
@@ -81,13 +89,27 @@ I cut them lengthwise and then dice them as I like smaller chunks.
 
 Once the veg is cut, add them to the pot.  
 
-![veg](/assets/images/CarrotCeleryOnion_Fotor.jpg)
-
 Herbs
 
 If using fresh, you will want to chop them into fine pieces.  Except for the thyme: you can pull off the little leaves by holding the stalk in one hand and pulling the fingers of the opposite hand down the stalk in the opposite direction of growth.  Basically, you are stripping the leaves from the stalk. If this doesn’t make sense, don’t worry. Take the leaves off however it works for you.
 
-Add the herbs. Also add salt and pepper.  How much?  Let’s say a teaspoon and a half of salt and a teaspoon of pepper.  It really depends on how much chicken and broth you are using. Go easy at first; you can always add more.
+Parsley
+
+![parsley](/assets/images/Parsley_Fotor.jpg)
+
+Rosemary
+
+![rosemary](/assets/images/Rosemary_Fotor.jpg)
+
+Thyme
+
+![thyme](/assets/images/Thyme_Fotor.jpg)
+
+Add the herbs. 
+
+![herbspot](/assets/images/HerbsInPot_Fotor.jpg)
+
+Also add salt and pepper.  How much?  Let’s say a teaspoon and a half of salt and a teaspoon of pepper.  It really depends on how much chicken and broth you are using. Go easy at first; you can always add more.
 
 When the pot is boiling, lower the heat to a simmer (basically you still want movement of the liquid, but not a lot). When everything is in, put the lid on.  Listen/watch for boiling; the lid will hold in more heat, with the result being the liquid being less of a simmer and more of a boil.
 
