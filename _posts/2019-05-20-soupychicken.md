@@ -93,15 +93,15 @@ Once the veg is cut, add them to the pot.
 
 If using fresh, you will want to chop them into fine pieces.  Except for the thyme: you can pull off the little leaves by holding the stalk in one hand and pulling the fingers of the opposite hand down the stalk in the opposite direction of growth.  Basically, you are stripping the leaves from the stalk. If this doesn’t make sense, don’t worry. Take the leaves off however it works for you.
 
-**Parsley**
+*Parsley*
 
 ![parsley](/assets/images/Parsley_Fotor.jpg)
 
-**Rosemary**
+*Rosemary*
 
 ![rosemary](/assets/images/Rosemary_Fotor.jpg)
 
-**Thyme**
+*Thyme*
 
 ![thyme](/assets/images/Thyme_Fotor.jpg)
 
@@ -129,7 +129,7 @@ This should also include the bay leaf; it is inedible.
 
 Taste the broth and adjust seasonings. Basically, that just means you see if there’s enough salt, pepper, and herbs to your liking.  If you don’t know how much of something to add, take a bit of broth out and put it in a mug or coffee cup.  Add your seasonings to that and taste.  That way, if you add too much, you won’t have ruined the entire dish.  Remember, you can put more in, but you can’t take any out.
 
-To accompany the soupy chicken, you can make rice or noodles.  I chose rice this time.
+To accompany the soupy chicken, you can make rice or noodles. Boiled mashed potatoes would also be nice.  I chose rice this time.
 
 ![rice](/assets/images/Rice_Fotor.jpg)
 
