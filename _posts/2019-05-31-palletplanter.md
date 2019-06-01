@@ -4,7 +4,7 @@ layout: post
 author: pam
 image: assets/images/CompletedPalletFace_Fotor.jpg
 categories:
-  - meals
+  - garden
 featured: false
 comments: false
 hidden: false
