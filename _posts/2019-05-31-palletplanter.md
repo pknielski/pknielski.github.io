@@ -27,7 +27,7 @@ and terracotta pots:
 
 Since this was in a semi-shady spot, I made sure to choose herbs that could handle that type of sun level. German thyme, Greek oregano, flat parsley, two curly parsleys (I think one was in the wrong place and I didn’t pay too much attention), and French thyme. 
 
-![herbsasstd](/assets/images/HerbsPrePots_Fotor.jpg)
+![herbsasstd](/assets/images/HerbsPrePot_Fotor.jpg)
 
 These were all labeled semi-shade; we’ll see how it goes. If your spot gets more sun, you will want to have herbs that do better in the sun. Basil and rosemary, for instance, need full sun.
 
