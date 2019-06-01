@@ -5,7 +5,7 @@ categories:
 image: assets/images/Melon_Fotor.jpg  
 ---
 
-Who is Melon?  Melon is our mystery snail. Why are they called mystery?  it's a mystery.  Fitting, eh? 
+Who is Melon?  Melon is our mystery snail. Why are they called mystery?  It's a mystery.  Fitting, eh? 
 
 While they don't directly relate with the other members of the aquarium community, they are still part of that community. They eat algae that can decrease the water quality, so they contribute to the health of the tank.  I think that makes them a contributing member of the community!
 
