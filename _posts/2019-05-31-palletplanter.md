@@ -25,11 +25,19 @@ and terracotta pots:
 
 ![asstdpots](/assets/images/PotsAssorted_Fotor.jpg)
 
-Since this was in a semi-shady spot, I made sure to choose herbs that could handle that type of sun level. German thyme, Greek oregano, flat parsley, two curly parsleys (I think one was in the wrong place and I didn’t pay too much attention), and French thyme. These were all labeled semi-shade; we’ll see how it goes. If your spot gets more sun, you will want to have herbs that do better in the sun. Basil and rosemary, for instance, need full sun.
+Since this was in a semi-shady spot, I made sure to choose herbs that could handle that type of sun level. German thyme, Greek oregano, flat parsley, two curly parsleys (I think one was in the wrong place and I didn’t pay too much attention), and French thyme. 
+
+![herbsasstd](/assets/images/HerbsPrePots_Fotor.jpg)
+
+These were all labeled semi-shade; we’ll see how it goes. If your spot gets more sun, you will want to have herbs that do better in the sun. Basil and rosemary, for instance, need full sun.
 
 I randomly hung the hoops (that’s what I’m going to call them) on the S-hooks wherever I thought they looked good.  You should hang yours where you think they look good; some people like more symmetrical, which could be really nice. 
 
+![hoopshung](/assets/images/RingsHanging_Fotor.jpg)
+
 I used these terracotta pots that are pretty inexpensive. It’s important to put some rocks or pot pieces in the bottom so the roots won’t sit in any water that accumulates in the bottom of the pot.  This will rot the roots and kill/weaken your plant. I use broken pot pieces; I have a lot. Don’t ask.
+
+![shards](/assets/images/PotShards_Fotor.jpg)
 
 Put a bit of soil in the bottom of the pot, not too much as you don’t want the plant to be too high when you put it in.  You are going to put the entire plant in the pot, soil and all. So I’d say about an inch or two loosely in the bottom.  Important: use container soil, not garden soil, top soil, or soil you get from your yard.  Those will all be too dense and won’t drain well.  While you want the water to stay in the pot long enough for the roots to take up (drink) the water, you don’t want the soil to stay sopping wet.  Your roots will rot and your plant will die.  Use container soil instead; this has ingredients that don’t absorb water and make the soil loose/non-compacted.
 
