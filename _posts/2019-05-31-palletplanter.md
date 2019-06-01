@@ -15,7 +15,15 @@ Pallet planter
 
 I have had this pallet for over a year, just leaning up against my garage wall.  The soil for my newest raised bed came in a big bag sitting on top of the pallet.  I had heard of using for plants but didn’t get around to it until this spring.  
 
-Basically, it’s some S hooks, these things (don’t know what they are called, but they are used on hoses to tighten connections)(need pics)), and terracotta pots.
+Basically, it’s some S hooks:
+
+![hooks](/assets/images/SHooks_Fotor.jpg)
+
+these things (don’t know what they are called, but they are used on hoses to tighten connections)(need pics)), 
+
+and terracotta pots:
+
+![asstdpots](/assets/images/PotsAssorted_Fotor.jpg)
 
 Since this was in a semi-shady spot, I made sure to choose herbs that could handle that type of sun level. German thyme, Greek oregano, flat parsley, two curly parsleys (I think one was in the wrong place and I didn’t pay too much attention), and French thyme. These were all labeled semi-shade; we’ll see how it goes. If your spot gets more sun, you will want to have herbs that do better in the sun. Basil and rosemary, for instance, need full sun.
 
