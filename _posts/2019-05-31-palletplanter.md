@@ -39,7 +39,11 @@ I used these terracotta pots that are pretty inexpensive. It’s important to pu
 
 ![shards](/assets/images/PotShards_Fotor.jpg)
 
-Put a bit of soil in the bottom of the pot, not too much as you don’t want the plant to be too high when you put it in.  You are going to put the entire plant in the pot, soil and all. So I’d say about an inch or two loosely in the bottom.  Important: use container soil, not garden soil, top soil, or soil you get from your yard.  Those will all be too dense and won’t drain well.  While you want the water to stay in the pot long enough for the roots to take up (drink) the water, you don’t want the soil to stay sopping wet.  Your roots will rot and your plant will die.  Use container soil instead; this has ingredients that don’t absorb water and make the soil loose/non-compacted.
+Put a bit of soil in the bottom of the pot, not too much as you don’t want the plant to be too high when you put it in.  You are going to put the entire plant in the pot, soil and all. So I’d say about an inch or two loosely in the bottom.  
+
+
+
+Important: use container soil, not garden soil, top soil, or soil you get from your yard.  Those will all be too dense and won’t drain well.  While you want the water to stay in the pot long enough for the roots to take up (drink) the water, you don’t want the soil to stay sopping wet.  Your roots will rot and your plant will die.  Use container soil instead; this has ingredients that don’t absorb water and make the soil loose/non-compacted.
 
 Using your dominant hand, support the plant around the stalk where it meets the soil (need pic). Turn the pot upside down while you support the plant.  Some soil may fall out; that’s ok.  Hold it over the new pot to save it if you like.
 
