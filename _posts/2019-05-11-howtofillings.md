@@ -19,21 +19,25 @@ Here is some pork tenderloin I sauteed last night.  I diced it (cut it into smal
 
 ![choppedfilling](/assets/images/choppedfilling_Fotor.jpg)
 
-Arizona Dreaming
+
+Here is the seasoning blend I use- Arizona Dreaming by Penzey's. If you don't know them, you should check them out.  Awesome spices and strong values. penzeys.com
 
 ![arizona](/assets/images/arizonadreaming_Fotor.jpg)
 
-Here is the pork in the pan with the onions and seasonings.
+
+Here is the pork in the pan with the onions and seasonings. This is what it looks like around the time you first put it all in the pan.
 
 ![porkfilling](/assets/images/tacofillingpork_Fotor.jpg)
 
+
 Cook it over medium low heat. Turn it down if your onions start to get dark brown; you want to cook the onions slow enough that they turn translucent. Then you can crisp them up a bit. 
 
-Not done (pork)
+This pork is not done (well, not like I like it; it is certainly done, as you cooked it yesterday, or the day before, or whatever)
 
 ![notdone](/assets/images/porkfillingnotdone_Fotor.jpg)
 
-Done (chicken)
+
+This is how I like my filling-crispy-ish onions, browned meat. This is chicken breast.
 
 ![done](/assets/images/chickenfillingdone_Fotor.jpg)
 
