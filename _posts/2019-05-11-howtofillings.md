@@ -15,12 +15,12 @@ So last night (or a couple days ago) you made a roast/a steak/some chicken/a por
 
 One thing I do is make a filling for tacos. It’s super easy. All you do is cut up the meat into small pieces, combine with diced onions, and add seasoning.
 
-Here is some pork tenderloin I sauteed last night.  I diced it (cut it into small cubes) and added onions and later (not pictured) Arizona Dreaming by Penzey’s Spices.
+Here is some pork tenderloin I sauteed last night.  I diced it (cut it into small cubes) and added onions and later added  Arizona Dreaming by Penzey’s Spices.
 
 ![choppedfilling](/assets/images/choppedfilling_Fotor.jpg)
 
 
-Here is the seasoning blend I use- Arizona Dreaming by Penzey's. If you don't know them, you should check them out.  Awesome spices and strong values. penzeys.com
+Here is the seasoning blend I use- Arizona Dreaming by Penzey's. If you don't know them, you should check them out.  Awesome spices and strong values. www.penzeys.com
 
 ![arizona](/assets/images/arizonadreaming_Fotor.jpg)
 
@@ -32,12 +32,12 @@ Here is the pork in the pan with the onions and seasonings. This is what it look
 
 Cook it over medium low heat. Turn it down if your onions start to get dark brown; you want to cook the onions slow enough that they turn translucent. Then you can crisp them up a bit. 
 
-This pork is not done (well, not like I like it; it is certainly done, as you cooked it yesterday, or the day before, or whatever)
+This pork is not done (well, not like I like it; it is certainly done, as you cooked it yesterday, or the day before, or whatever). If you compare it closely with the next photo, you may see that the onions in the next photo are browner, as is the chicken.
 
 ![notdone](/assets/images/porkfillingnotdone_Fotor.jpg)
 
 
-This is how I like my filling-crispy-ish onions, browned meat. This is chicken breast.
+This is how I like my filling-crispy-ish onions, browned meat. This is the chicken breast.
 
 ![done](/assets/images/chickenfillingdone_Fotor.jpg)
 
