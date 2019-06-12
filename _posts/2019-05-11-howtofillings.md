@@ -2,7 +2,7 @@
 published: true
 layout: post
 author: pam
-image: assets/images/chickenfillingdone.jpg
+image: assets/images/chickenfillingdone_Fotor.jpg
 categories:
   - howto
 featured: false
