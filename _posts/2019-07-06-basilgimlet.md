@@ -18,7 +18,7 @@ A gimlet is a lovely summer drink, especially if you infuse it with basil. Wait,
 
 Gimlets also make me think of the Roaring Twenties, The Great Gatsby, and flappers. Especially when I serve it in a coupe glass.
 
-![glass](/assets/images/basilgimletglass_Fotor.jpg)
+![limebasil](/assets/images/limeplusbasil_Fotor.jpg)
 
 What goes into a gimlet?
 
@@ -32,9 +32,12 @@ ANYWAY
 What you need:
 
 Gin (not super fancy gin-Bombay or Tanqueray is fine. Don’t use cheaper ones like McCormick)
-Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a lot of juice in them). 4? 6?
 
-![limebasil](/assets/images/limeplusbasil_Fotor.jpg)
+Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a lot of juice in them). 4? 6? This is the best juicer I've found. It really does a good job and you don't have to put a lot of effort into it. 
+
+*juicer*
+*limespostjuicing*
+
 
 ![juicer](/assets/images/limeinjuicer_Fotor.jpg)
 
