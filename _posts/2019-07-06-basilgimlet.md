@@ -33,7 +33,10 @@ What you need:
 
 Gin (not super fancy gin-Bombay or Tanqueray is fine. Don’t use cheaper ones like McCormick)
 Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a lot of juice in them). 4? 6?
-*limes plus squeezer*
+
+![limebasil](/assets/images/limesplusbasil_Fotor.jpg)
+
+![juicer](/assets/images/limeinjuicer_Fotor.jpg)
 
 Basil-4-5 leaves? More if you are making more than one or two drinks.
 *basil*
