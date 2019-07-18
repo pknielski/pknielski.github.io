@@ -18,7 +18,7 @@ A gimlet is a lovely summer drink, especially if you infuse it with basil. Wait,
 
 Gimlets also make me think of the Roaring Twenties, The Great Gatsby, and flappers. Especially when I serve it in a coupe glass.
 
-*Picture of flapper, coupe*
+![glass](/assets/images/basilgimletglass_Fotor.jpg)
 
 What goes into a gimlet?
 
@@ -64,11 +64,16 @@ Once it seems good, add ice.  Again, you can shake it with a cocktail shaker wit
 You can stop right here and have a nice gimlet. However, if you have fresh basil, you can use it to make a lovely summer drink (or spring, or fall, or whenever).
 
 Before you mix the liquids, put the basil leaves in the bottom of a glass (preferably the one you will drink out of) or a cocktail shaker, and then crush it.  The utensil to use, if you have one, is a muddler (squishing the flavor and oils out of something with a utensil is called muddling). 
-*muddler*
+
+![muddler](/assets/images/muddler_Fotor.jpg)
 
 You can also use some other item or tool that can crush the leaves without tearing them all up. You want something with a wide end, not a fork or knife type of utensil. The end of the handle of a wooden spoon works well.
 *spoon*
 
-Crush the leaves until they are all bruised and dark. Then add your gimlet ingredients and shake. Pour into your glasses.
+Crush the leaves until they are all bruised and dark. 
+
+![bruised](/assets/images/bruisedbasil_Fotor.jpg)
+
+Then add your gimlet ingredients and shake. Pour into your glasses.
 
 Prost!
