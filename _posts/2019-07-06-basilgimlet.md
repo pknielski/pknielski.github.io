@@ -29,14 +29,15 @@ Gin is a lovely liquor. Forget about your poor previous experiences with gin.  F
 
 ANYWAY
 
-What you need:
-
 Gin (not super fancy gin-Bombay or Tanqueray is fine. Don’t use cheaper ones like McCormick)
+
+gin bottle pic*
 
 Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a lot of juice in them). 4? 6? This is the best juicer I've found. It really does a good job and you don't have to put a lot of effort into it. 
 
 *juicer*
 *limespostjuicing*
+
 
 
 ![juicer](/assets/images/limeinjuicer_Fotor.jpg)
@@ -45,9 +46,12 @@ Basil-4-5 leaves? More if you are making more than one or two drinks.
 *basil*
 
 Simple syrup
-*bottle of syrup, pan of syrup?*
 
--sugar dissolved into water in a particular ratio. You can make it yourself or buy it. Generally it’s a cup of white (granulated) sugar and a cup of water in a pot, brought to a gentle boil.  Basically you are dissolving the sugar into the water and making sugar water. Make sure you let it cool; it will also last in the fridge for a month or two.
+-sugar dissolved into water in a particular ratio. You can make it yourself or buy it. It's super easy to make, but if it's easier to buy it, do it. Here's one brand.
+
+*bottle of simple syrup*
+
+Make it yourself: It's a one to one ratio: one cup of sugar and one cup of water. Basically you are dissolving the sugar into the water and making sugar water. Heat the sugar and water combo to a boil. Boil gently until the water is clear (all sugar solids are dissolved). Make sure you let it cool to room temperature; it will also last in the fridge for a month or two.
 
 All of these question marks are because it’s really a matter of taste.  Things to think about:
 
@@ -82,4 +86,4 @@ Crush the leaves until they are all bruised and dark.
 
 Then add your gimlet ingredients and shake. Pour into your glasses.
 
-Prost!
+You so fancy!
