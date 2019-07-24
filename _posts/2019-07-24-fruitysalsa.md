@@ -96,12 +96,12 @@ Mince (cut finely) the cilantro.
 
 ![bunch](/assets/images/cilantrobunch_Fotor.jpg)
 
-![board](/assets/images/cilantrobunchboard_Fotor.jpg)
+![board](/assets/images/cilantorbunchboard_Fotor.jpg)
 
 Here are a couple of photos my other half took to show my hand placement when mincing the cilantro.
 
 
-![chopping1](/assets/images/cilantrochopping1_Fotor.jpg)
+![chopping1](/assets/images/cilantrochoping1_Fotor.jpg)
 
 ![chopping2](/assets/images/cilantrochopping2_Fotor.jpg)
 
