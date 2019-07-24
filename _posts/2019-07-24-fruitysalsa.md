@@ -69,6 +69,8 @@ Cut up the tomatoes. These were from my Imperfect box; kind of a pain to cut up,
 
 I'm not sure if you can see this, but these are a big squished.  This is because I used a knife with a smooth blade.  A serrated blade is better to cut through the thin but surprisingly strong skin without crushing the insides.  This one is actually called a tomato/cheese knife.
 
+![knife](/assets/images/tomatoknife_Fotor.jpg)
+
 ![tomshalved2](/assets/images/tomshalved2_Fotor.jpg)
 
 Cut up jalapeno (my other half can’t do too much capsaicin, so I didn’t add as much as I would have for myself or others. Feel free to add as much as you like). 
