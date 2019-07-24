@@ -38,12 +38,9 @@ Peel and cut up mango
 
 FYI: mangos have a big pit so you have to cut around it.  I am sure there are tutorials about how best to cut up a mango.  That’s not what’s happening here.
 
-Add to bowl (this photo shows the cucumber added as well).
-
-![mangobowl](/assets/images/mangoadditionbowl_Fotor.jpg)
+Add to bowl.
 
 Peel and cut up nectarine.
-
 
 ![nectarine](/assets/images/nectarinesemipeeled_Fotor.jpg)
 
@@ -63,20 +60,57 @@ I like green onions for a lot of dishes; they are distinct in taste, but also mi
 
 Cut up the tomatoes. These were from my Imperfect box; kind of a pain to cut up, as they are small, but really no more of a pain than larger sized ones. Not sure why I’m complaining. 
 
-Cut up jalapeno (my other half can’t do too much capsaicin, so I didn’t add as much as I would have for myself or others. Feel free to add as much as you like). Tip: fresh jalapenos vary tremendously in their heat profiles; nibble on a little bit of the pepper to see how spicy yours are. 
+![tomswhole](/assets/images/tomswhole_Fotor.jpg)
+
+![tomshalved](/assets/images/tomshalved_Fotor.jpg)
+
+I'm not sure if you can see this, but these are a big squished.  This is because I used a knife with a smooth blade.  A serrated blade is better to cut through the thin but surprisingly strong skin without crushing the insides.  This one is actually called a tomato/cheese knife.
+
+![tomshalved2](/assets/images/tomshalved2_Fotor.jpg)
+
+Cut up jalapeno (my other half can’t do too much capsaicin, so I didn’t add as much as I would have for myself or others. Feel free to add as much as you like). 
+
+![jalapenowhole](/assets/images/jalapenowhole_Fotor.jpg)
+
+Tip: fresh jalapenos vary tremendously in their heat profiles; nibble on a little bit of the pepper to see how spicy yours are. 
+
+![jalapenohalved](/assets/images/jalapenohalved.jpg)
+
+Slip your knife under the seeds to remove them (the hottest part) and the ribs (the white-ish parts).
+
+![seeding](/assets/images/jalapenoseeding_Fotor.jpg)
+
+![jdiced](/assets/images/jalapenodiced_Fotor.jpg)
+
+Add to bowl.
+
+![jbowl](/assets/images/jalapenobowl_Fotor.jpg)
 
 Note: you don’t have to include jalapenos. In fact, you don’t have to include anything you don’t want to.  Don’t like mango? Try peaches. Or nectarines. Or just omit the fruit. The beauty of this is that you can include whatever you want.
 
-I also included some cucumber from my garden, because they are starting to take over. Again, you should add only what you like.  Or, if you don’t know what everything might taste like together, you could combine a few ingredients, let them sit for a bit, and then taste them.
+I also included some cucumber from my garden, because they are starting to take over. Peel, seed (take the seeds out by cutting the cuke longwise, then halving the halves, then running your knife parallel to the fruit to slice the seeds off in a long strip). Again, you should add only what you like.  Or, if you don’t know what everything might taste like together, you could combine a few ingredients, let them sit for a bit, and then taste them.
 
 Now I added salt, pepper, and some Penzey’s Arizona Dreaming mix. 
 
-*Arizona dreaming*
+![salt](/assets/images/saltinbowl_Fotor.jpg)
+
+![arizona](/assets/images/arizonadreaming_Fotor.jpg)
 
 A short aside:
 
 I know I’ve talked about Penzey’s before, but let me just say that not only do they have super high quality spices, Bill Penzey also lives his values. He stands up for what he believes in, and he doesn’t change them to make more money. You may not agree with him (but I hope you do, because he is in favor of human rights, reproductive justice, and uniting people through cooking. Bill is awesome.), but I hope you support a person and a business living their values authentically and honestly.
 
+Now mix everything up with two big spoons.  I like wooden spoons for this.
+
+
+![spoons](/assets/images/bowlmixing_Fotor.jpg)
+
+Cover and refrigerate for a bit to meld the flavors. You may want to bring it back to room temperature, but it's really up to you.  Do you like cold salsa or room temperature salsa?
+
+Here's that tuna I meantioned earlier with the salsa.  It was lovely.
+
+
+![package](/assets/images/Breasts_in_package_Fotor.jpg)
 
 
 
