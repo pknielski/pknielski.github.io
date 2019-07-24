@@ -9,6 +9,7 @@ featured: false
 comments: false
 hidden: false
 title: Fruity Salsa
+---
 
 
 
@@ -74,7 +75,7 @@ Cut up jalapeno (my other half can’t do too much capsaicin, so I didn’t add 
 
 Tip: fresh jalapenos vary tremendously in their heat profiles; nibble on a little bit of the pepper to see how spicy yours are. 
 
-![jalapenohalved](/assets/images/jalapenohalved.jpg)
+![jalapenohalved](/assets/images/jalapenohalved_Fotor.jpg)
 
 Slip your knife under the seeds to remove them (the hottest part) and the ribs (the white-ish parts).
 
@@ -84,7 +85,7 @@ Slip your knife under the seeds to remove them (the hottest part) and the ribs (
 
 Add to bowl.
 
-![jbowl](/assets/images/jalapenobowl_Fotor.jpg)
+![jbowl](/assets/images/jalapenosbowl_Fotor.jpg)
 
 Note: you don’t have to include jalapenos. In fact, you don’t have to include anything you don’t want to.  Don’t like mango? Try peaches. Or nectarines. Or just omit the fruit. The beauty of this is that you can include whatever you want.
 
@@ -95,7 +96,7 @@ Mince (cut finely) the cilantro.
 
 ![bunch](/assets/images/cilantrobunch_Fotor.jpg)
 
-![board](/assets/images/cilantroboard_Fotor.jpg)
+![board](/assets/images/cilantrobunchboard_Fotor.jpg)
 
 Here are a couple of photos my other half took to show my hand placement when mincing the cilantro.
 
