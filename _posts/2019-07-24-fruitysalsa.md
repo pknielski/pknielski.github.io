@@ -12,7 +12,7 @@ title: Fruity Salsa
 
 
 
-![package](/assets/images/Breasts_in_package_Fotor.jpg)
+![bowl](/assets/images/bowlmixingcloseup_Fotor.jpg)
 
 Fruity salsa
 
@@ -38,17 +38,28 @@ Peel and cut up mango
 
 FYI: mangos have a big pit so you have to cut around it.  I am sure there are tutorials about how best to cut up a mango.  That’s not what’s happening here.
 
-Add to bowl.
+Add to bowl (this photo shows the cucumber added as well).
 
 ![mangobowl](/assets/images/mangoadditionbowl_Fotor.jpg)
 
-Peel and cut up nectarine
+Peel and cut up nectarine.
+
+
+![nectarine](/assets/images/nectarinesemipeeled_Fotor.jpg)
 
 I think this is a white fleshed nectarine. Similar taste, but it seems to cost more in the supermarket.  Do a taste test to see if it’s worth that extra cost.
 
+![nectarinesliced](/assets/images/nectarineslices_Fotor.jpg)
+
 Cut up green onions
 
-I like green onions for a lot of dishes; they are distinct in taste, but also mild.
+![onionroot](/assets/images/onionsroot_Fotor.jpg)
+
+![oniondiced](/assets/images/onionsdiced_Fotor.jpg)
+
+I like green onions for a lot of dishes; they are distinct in taste, but also mild. Add them to the bowl.
+
+![onionbowl](/assets/images/onionsbowl_Fotor.jpg)
 
 Cut up the tomatoes. These were from my Imperfect box; kind of a pain to cut up, as they are small, but really no more of a pain than larger sized ones. Not sure why I’m complaining. 
 
