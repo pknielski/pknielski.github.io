@@ -19,6 +19,12 @@ Fruity salsa
 
 I knew I had coming in my Imperfect box jalapenos, mango, green onion, heirloom grape tomatoes, and cilantro (I did a little planning, but didn’t know exactly what I would be doing with all of this).
 
+![stilllife](/assets/images/stilllifesalsa_Fotor.jpg)
+
+![still2](/assets/images/stilllifesalsa2_Fotor.jpg)
+
+![still3](/assets/images/stilllifesalsacilantro_Fotor.jpg)
+
 At the Jewel, I saw some frozen ahi tuna steaks, and I thought, “Ahi with mango salsa!” Don’t be fooled; I rarely think so coherently about meal planning. It was really the planets or something aligning.
 
 OK, so. Salsa means sauce in Spanish, but it seems to have a more narrow definition here in the States (please correct me if I am wrong, peeps). I think of salsa as being that tomatoey jalapeno stuff we eat with tortilla chips (which is so awesome, don’t get me wrong). However, I think that folks outside of the States have a broader understanding of what salsa is and/or could be.
@@ -31,11 +37,11 @@ This is what I did:
 
 Peel and cut up mango
 
-
 ![mango](/assets/images/mangoknife_Fotor.jpg)
 
-
 ![peels](/assets/images/mangopeels_Fotor.jpg)
+
+![sliced](/assets/images/slicedmango_Fotor.jpg)
 
 FYI: mangos have a big pit so you have to cut around it.  I am sure there are tutorials about how best to cut up a mango.  That’s not what’s happening here.
 
@@ -75,7 +81,7 @@ Cut up jalapeno (my other half can’t do too much capsaicin, so I didn’t add 
 
 Tip: fresh jalapenos vary tremendously in their heat profiles; nibble on a little bit of the pepper to see how spicy yours are. 
 
-![jalapenohalved](/assets/images/jalapenohalved_Fotor.jpg)
+![jalapenohalved](/assets/images/jalapenohalved_Fotor.jpg) 
 
 Slip your knife under the seeds to remove them (the hottest part) and the ribs (the white-ish parts).
 
