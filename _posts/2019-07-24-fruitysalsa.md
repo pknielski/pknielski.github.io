@@ -90,6 +90,28 @@ Note: you don’t have to include jalapenos. In fact, you don’t have to includ
 
 I also included some cucumber from my garden, because they are starting to take over. Peel, seed (take the seeds out by cutting the cuke longwise, then halving the halves, then running your knife parallel to the fruit to slice the seeds off in a long strip). Again, you should add only what you like.  Or, if you don’t know what everything might taste like together, you could combine a few ingredients, let them sit for a bit, and then taste them.
 
+Mince (cut finely) the cilantro.  
+
+
+![bunch](/assets/images/cilantrobunch_Fotor.jpg)
+
+![board](/assets/images/cilantroboard_Fotor.jpg)
+
+Here are a couple of photos my other half took to show my hand placement when mincing the cilantro.
+
+
+![chopping1](/assets/images/cilantrochopping1_Fotor.jpg)
+
+![chopping2](/assets/images/cilantrochopping2_Fotor.jpg)
+
+![chopping3](/assets/images/cilantrochopping3_Fotor.jpg)
+
+![chopping4](/assets/images/cilantrochopping4_Fotor.jpg)
+
+Add to bowl.
+
+![bowl](/assets/images/cilantrobowl_Fotor.jpg)
+
 Now I added salt, pepper, and some Penzey’s Arizona Dreaming mix. 
 
 ![salt](/assets/images/saltinbowl_Fotor.jpg)
@@ -102,7 +124,6 @@ I know I’ve talked about Penzey’s before, but let me just say that not only 
 
 Now mix everything up with two big spoons.  I like wooden spoons for this.
 
-
 ![spoons](/assets/images/bowlmixing_Fotor.jpg)
 
 Cover and refrigerate for a bit to meld the flavors. You may want to bring it back to room temperature, but it's really up to you.  Do you like cold salsa or room temperature salsa?
@@ -110,7 +131,7 @@ Cover and refrigerate for a bit to meld the flavors. You may want to bring it ba
 Here's that tuna I meantioned earlier with the salsa.  It was lovely.
 
 
-![package](/assets/images/Breasts_in_package_Fotor.jpg)
+![tunasalsa](/assets/images/tunasalsa_Fotor.jpg)
 
 
 
