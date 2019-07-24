@@ -10,13 +10,6 @@ comments: false
 hidden: false
 title: Fruity Salsa
 ---
-
-
-
-![bowl](/assets/images/bowlmixingcloseup_Fotor.jpg)
-
-Fruity salsa
-
 I knew I had coming in my Imperfect box jalapenos, mango, green onion, heirloom grape tomatoes, and cilantro (I did a little planning, but didn’t know exactly what I would be doing with all of this).
 
 ![still2](/assets/images/stilllifesalsa2_Fotor.jpg)
