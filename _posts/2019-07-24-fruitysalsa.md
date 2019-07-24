@@ -19,11 +19,7 @@ Fruity salsa
 
 I knew I had coming in my Imperfect box jalapenos, mango, green onion, heirloom grape tomatoes, and cilantro (I did a little planning, but didn’t know exactly what I would be doing with all of this).
 
-![stilllife](/assets/images/stilllifesalsa_Fotor.jpg)
-
 ![still2](/assets/images/stilllifesalsa2_Fotor.jpg)
-
-![still3](/assets/images/stilllifesalsacilantro_Fotor.jpg)
 
 At the Jewel, I saw some frozen ahi tuna steaks, and I thought, “Ahi with mango salsa!” Don’t be fooled; I rarely think so coherently about meal planning. It was really the planets or something aligning.
 
