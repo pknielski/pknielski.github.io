@@ -23,7 +23,8 @@ Gimlets also make me think of the Roaring Twenties, The Great Gatsby, and flappe
 What goes into a gimlet?
 
 Gin
-*gin bottle pic*
+
+![limebasil](/assets/images/limeplusbasil_Fotor.jpg)
 
 Gin is a lovely liquor. Forget about your poor previous experiences with gin.  Forget that you don’t like gin. Gin combined with lots of lime and simple (sugar) syrup plus basil means that whatever you don’t like about gin you can’t taste. BUT! You can still taste the gin. Confused? I am positing that maybe what you don’t like about gin is its strong taste. Fair enough. There are ways to temper that-maybe by getting a better quality gin or perhaps by making a drink that uses ingredients that complement and temper those notes and flavors that are a bit more difficult to like.
 
@@ -43,7 +44,8 @@ Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a 
 ![juicer](/assets/images/limeinjuicer_Fotor.jpg)
 
 Basil-4-5 leaves? More if you are making more than one or two drinks.
-*basil*
+
+![basil](/assets/images/basil.jpg)
 
 Simple syrup
 
@@ -85,5 +87,7 @@ Crush the leaves until they are all bruised and dark.
 ![bruised](/assets/images/bruisedbasil_Fotor.jpg)
 
 Then add your gimlet ingredients and shake. Pour into your glasses.
+
+![gimlettop](/assets/images/gimlettop.jpg)
 
 You so fancy!
