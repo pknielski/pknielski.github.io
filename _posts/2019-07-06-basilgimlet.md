@@ -10,7 +10,6 @@ comments: false
 hidden: false
 title: Basil gimlet
 ---
-Basil Gimlet
 
 ![glass](/assets/images/basilgimletglass_Fotor.jpg)
 
