@@ -29,11 +29,18 @@ ANYWAY
 
 Gin (not super fancy gin-Bombay or Tanqueray is fine. Don’t use cheaper ones like McCormick)
 
-Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a lot of juice in them). 4? 6? This is the best juicer I've found. It really does a good job and you don't have to put a lot of effort into it. 
+Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a lot of juice in them). 4? 6? 
 
 ![limes](/assets/images/twolimes.jpg)
 
+
+This is the best juicer I've found. It really does a good job and you don't have to put a lot of effort into it. 
+
+![citruspress](/assets/images/citruspress.jpg)
+
+
 ![juicer](/assets/images/limeinjuicer_Fotor.jpg)
+
 
 ![limebasil](/assets/images/limeplusbasil_Fotor.jpg)
 
