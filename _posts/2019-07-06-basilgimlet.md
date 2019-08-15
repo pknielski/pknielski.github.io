@@ -24,20 +24,15 @@ What goes into a gimlet?
 
 Gin
 
-![limebasil](/assets/images/limeplusbasil_Fotor.jpg)
-
 Gin is a lovely liquor. Forget about your poor previous experiences with gin.  Forget that you don’t like gin. Gin combined with lots of lime and simple (sugar) syrup plus basil means that whatever you don’t like about gin you can’t taste. BUT! You can still taste the gin. Confused? I am positing that maybe what you don’t like about gin is its strong taste. Fair enough. There are ways to temper that-maybe by getting a better quality gin or perhaps by making a drink that uses ingredients that complement and temper those notes and flavors that are a bit more difficult to like.
 
 ANYWAY
 
 Gin (not super fancy gin-Bombay or Tanqueray is fine. Don’t use cheaper ones like McCormick)
 
-gin bottle pic*
-
 Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a lot of juice in them). 4? 6? This is the best juicer I've found. It really does a good job and you don't have to put a lot of effort into it. 
 
-
-![limes](/assets/images/limes.jpg)
+![limes](/assets/images/twolimes.jpg)
 
 ![juicer](/assets/images/limeinjuicer_Fotor.jpg)
 
@@ -47,9 +42,7 @@ Basil-4-5 leaves? More if you are making more than one or two drinks.
 
 Simple syrup
 
--sugar dissolved into water in a particular ratio. You can make it yourself or buy it. It's super easy to make, but if it's easier to buy it, do it. Here's one brand.
-
-*bottle of simple syrup*
+-sugar dissolved into water in a particular ratio. You can make it yourself or buy it. It's super easy to make, but if it's easier to buy it, do it.
 
 Make it yourself: It's a one to one ratio: one cup of sugar and one cup of water. Basically you are dissolving the sugar into the water and making sugar water. Heat the sugar and water combo to a boil. Boil gently until the water is clear (all sugar solids are dissolved). Make sure you let it cool to room temperature; it will also last in the fridge for a month or two.
 
@@ -78,14 +71,15 @@ Before you mix the liquids, put the basil leaves in the bottom of a glass (prefe
 ![muddler](/assets/images/basilmuddler_Fotor.jpg)
 
 You can also use some other item or tool that can crush the leaves without tearing them all up. You want something with a wide end, not a fork or knife type of utensil. The end of the handle of a wooden spoon works well.
-*spoon*
 
 Crush the leaves until they are all bruised and dark. 
 
 ![bruised](/assets/images/bruisedbasil_Fotor.jpg)
 
+
 Then add your gimlet ingredients and shake. Pour into your glasses.
 
 ![gimlettop](/assets/images/gimlettop.jpg)
+
 
 You so fancy!
