@@ -10,9 +10,7 @@ comments: false
 hidden: false
 title: Basil gimlet
 ---
-
 ![glass](/assets/images/basilgimletglass_Fotor.jpg)
-
 A gimlet is a lovely summer drink, especially if you infuse it with basil. Wait, you say-what is “infuse?” This means that the essence or flavor of the herb (basil here) is extracted (crushed or squeezed out) so that the oils or other flavor essences are now in the liquid (here the gimlet ingredients). 
 
 Gimlets also make me think of the Roaring Twenties, The Great Gatsby, and flappers. Especially when I serve it in a coupe glass.
