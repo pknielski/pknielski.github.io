@@ -18,7 +18,6 @@ A gimlet is a lovely summer drink, especially if you infuse it with basil. Wait,
 
 Gimlets also make me think of the Roaring Twenties, The Great Gatsby, and flappers. Especially when I serve it in a coupe glass.
 
-![limebasil](/assets/images/limeplusbasil_Fotor.jpg)
 
 What goes into a gimlet?
 
@@ -36,11 +35,16 @@ Limes-how many?  Not sure.  Sometimes they can be sort of dry (i.e., with not a 
 
 ![juicer](/assets/images/limeinjuicer_Fotor.jpg)
 
+![limebasil](/assets/images/limeplusbasil_Fotor.jpg)
+
+
 Basil-4-5 leaves? More if you are making more than one or two drinks.
 
 ![basil](/assets/images/basil.jpg)
 
+
 Simple syrup
+
 
 -sugar dissolved into water in a particular ratio. You can make it yourself or buy it. It's super easy to make, but if it's easier to buy it, do it.
 
