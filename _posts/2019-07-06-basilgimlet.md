@@ -57,6 +57,7 @@ Simple syrup
 
 Make it yourself: It's a one to one ratio: one cup of sugar and one cup of water. Basically you are dissolving the sugar into the water and making sugar water. Heat the sugar and water combo to a boil. Boil gently until the water is clear (all sugar solids are dissolved). Make sure you let it cool to room temperature; it will also last in the fridge for a month or two.
 
+
 All of these question marks are because it’s really a matter of taste.  Things to think about:
 
 Simple syrup is sweet.
@@ -66,6 +67,7 @@ Lime juice is pretty sour.
 Gin has a distinctive taste which you don’t want to lose.
 
 Basil-we are going to put the basil on hold here, as I want you to get the basic gimlet first.
+
 
 The key here is balance.  Have you ever gone to a place that does fancy cocktails and seen the bartender take a long spoon and taste the drink she is making?  If even professional bartenders do that, you can, too.  So what you do is mix some things (thoughtfully) and then taste.
 
