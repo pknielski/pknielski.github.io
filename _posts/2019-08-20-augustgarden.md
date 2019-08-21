@@ -24,6 +24,10 @@ Green Zebra tomatoes: note the height. I got these tomato towers from Gardeners 
 ![tomsaugust](/assets/images/tomsaugust.jpg)
 
 
+![greenzebras](/assets/images/greenzebrasaugust.jpg)
+
+
+
 Cucumbers are doing well. It’s a variety called something like market well or something. Straight (if trellised), dark skinned, and small seeded.
 
 
