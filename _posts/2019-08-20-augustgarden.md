@@ -20,18 +20,19 @@ So here’s my garden as of August __. Note the empty bed: my yellow squash deve
 
 Green Zebra tomatoes: note the height. I got these tomato towers from Gardeners Supply Company (gardeners.com); they are awesome.  Not cheap, by any means, but they should last for some years.
 
-![glass](/assets/images/basilgimletglass_Fotor.jpg)
+![tomsaugust](/assets/images/tomsaugust.jpg)
 
 Cucumbers are doing well. It’s a variety called something like market well or something. Straight (if trellised), dark skinned, and small seeded.
 
-![glass](/assets/images/basilgimletglass_Fotor.jpg)
+![cucumber](/assets/images/cucumber.jpg)
 
-![glass](/assets/images/basilgimletglass_Fotor.jpg)
+![babycuke](/assets/images/babycuke.jpg)
 
 Cabbages, even eaten by cabbage moths/larvae, are doing well.  Looking forward to harvesting (and eating) those.
 
-![glass](/assets/images/basilgimletglass_Fotor.jpg)
-![glass](/assets/images/basilgimletglass_Fotor.jpg)
+![holeycabbage](/assets/images/holeycabbage.jpg)
+
+![holeycabbage2](/assets/images/holeycabbage2.jpg)
 
 Basil is going to seed, which is fine. Lots of bees on the flowers.
 
