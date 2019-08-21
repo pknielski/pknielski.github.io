@@ -14,25 +14,33 @@ August in the Garden
 
 I was thinking this week about how I garden, that I grow things that I don’t necessarily eat. And then I realized that my dad did this.  This was especially true about watermelons.  He LOVED growing watermelons.  But he never (or maybe rarely) ate them.  He just liked the growing.  I feel I’m similar; I grow hot peppers that my family doesn’t eat and that I rarely do. I plant various lettuces but rarely get to them before they bolt. Maybe I’m lazy, or maybe I’m a better grower of slow things. 😊 I like the veg I grow, but I get more satisfaction from growing and harvesting than I do eating them.  For me, and perhaps other gardeners, it truly is the growing that is the focus and the source of my pleasure. I also love to give veg away.
 
-So here’s my garden as of August __. Note the empty bed: my yellow squash developed powdery mildew while I was abroad so I had to rip it out.  Boo.
+So here’s my garden as of mid-August, Note the empty bed: my yellow squash developed powdery mildew while I was abroad so I had to rip it out.  Boo.
 
-![glass](/assets/images/basilgimletglass_Fotor.jpg)
+![emptybed](/assets/images/emptysquashbed.jpg)
 
-Green Zebra tomatoes: note the height. I got these tomato towers from Gardeners Supply Company (gardeners.com); they are awesome.  Not cheap, by any means, but they should last for some years.
+
+Green Zebra tomatoes: note the height. I got these tomato towers from Gardeners Supply Company (gardeners.com); they are awesome.  Not cheap, by any means, but they should last for some years. I know you can't really see the towers:;here they are on the website: https://www.gardeners.com/buy/tomato-tower-cages-set-of-2/8587041.html
 
 ![tomsaugust](/assets/images/tomsaugust.jpg)
 
+
 Cucumbers are doing well. It’s a variety called something like market well or something. Straight (if trellised), dark skinned, and small seeded.
+
 
 ![cucumber](/assets/images/cucumber.jpg)
 
+
 ![babycuke](/assets/images/babycuke.jpg)
+
 
 Cabbages, even eaten by cabbage moths/larvae, are doing well.  Looking forward to harvesting (and eating) those.
 
+
 ![holeycabbage](/assets/images/holeycabbage.jpg)
 
+
 ![holeycabbage2](/assets/images/holeycabbage2.jpg)
+
 
 Basil is going to seed, which is fine. Lots of bees on the flowers.
 
