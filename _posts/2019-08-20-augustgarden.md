@@ -16,21 +16,22 @@ I was thinking this week about how I garden, that I grow things that I don’t n
 
 So here’s my garden as of August __. Note the empty bed: my yellow squash developed powdery mildew while I was abroad so I had to rip it out.  Boo.
 
-*emptybed*
+![glass](/assets/images/basilgimletglass_Fotor.jpg)
 
-Green Zebra tomatoes: note the height. I got these tomato towers from Gardeners Supply Company (gardeners.com); they are awesome.  Not cheap, by any means, but they should las for some years.
+Green Zebra tomatoes: note the height. I got these tomato towers from Gardeners Supply Company (gardeners.com); they are awesome.  Not cheap, by any means, but they should last for some years.
 
-*tomshigh*
+![glass](/assets/images/basilgimletglass_Fotor.jpg)
 
 Cucumbers are doing well. It’s a variety called something like market well or something. Straight (if trellised), dark skinned, and small seeded.
 
-*cuke*
+![glass](/assets/images/basilgimletglass_Fotor.jpg)
 
-*baby cuke*
+![glass](/assets/images/basilgimletglass_Fotor.jpg)
 
 Cabbages, even eaten by cabbage moths/larvae, are doing well.  Looking forward to harvesting (and eating) those.
 
-*holey cabbage 1 and 2*
+![glass](/assets/images/basilgimletglass_Fotor.jpg)
+![glass](/assets/images/basilgimletglass_Fotor.jpg)
 
 Basil is going to seed, which is fine. Lots of bees on the flowers.
 
@@ -38,7 +39,7 @@ Sage survived the polar vortex. It all seemingly died, but it came back in the s
 
 Dill-I have so much dill.  Most (all?) is volunteer.  I do use some, but mostly it’s for swallowtail butterfly caterpillars.
 
-*caterpillar*
+![glass](/assets/images/basilgimletglass_Fotor.jpg)
 
 Here are some of the flowers that are doing well.
 
@@ -48,5 +49,12 @@ Other things are doing well.
 
 Tree hydrangea
 
+![hydrangea](/assets/images/treehydrangeaaugust.jpg)
+
 Black-eyed Susans
 
+![susans](/assets/images/blackeyedsusans.jpg)
+
+Wandering Jew (this just loves being outside)
+
+![wanderingjew](/assets/images/wanderingjew.jpg)
