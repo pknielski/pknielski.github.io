@@ -58,7 +58,8 @@ Here are some of the flowers that are doing well.
 
 I particularly like the ones in these containers. I’m not a super container garden planner, so I was surprised at how nicely these came together.
 
-Other things are doing well.
+![flowermess](/assets/images/flowermessaugust.jpg)
+
 
 Tree hydrangea
 
