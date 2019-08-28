@@ -50,9 +50,15 @@ Basil is going to seed, which is fine. Lots of bees on the flowers.
 
 Sage survived the polar vortex. It all seemingly died, but it came back in the spring. Another of those plants that I love to grow but rarely eat/use.
 
+![basilsage](/assets/images/basilsage.jpg)
+
 Dill-I have so much dill.  Most (all?) is volunteer.  I do use some, but mostly it’s for swallowtail butterfly caterpillars.
 
-![glass](/assets/images/basilgimletglass_Fotor.jpg)
+![dillseed](/assets/images/dillseed.jpg)
+
+Here's some mint that is also going to seed.
+
+![mintseed](/assets/images/mintseed.jpg)
 
 Here are some of the flowers that are doing well.
 
@@ -72,3 +78,5 @@ Black-eyed Susans
 Wandering Jew (this just loves being outside)
 
 ![wanderingjew](/assets/images/wanderingjew.jpg)
+
+But now with the waning of summer, it's time to plant some fall crops, like greens and maybe some radishes again. I'll update later on that project.
