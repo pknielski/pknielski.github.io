@@ -4,7 +4,7 @@ layout: post
 author: pam
 image: assets/images/gardenmess.jpg
 categories:
-  - drinks
+  - garden
 featured: false
 comments: false
 hidden: false
