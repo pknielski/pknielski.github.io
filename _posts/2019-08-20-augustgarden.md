@@ -1,3 +1,4 @@
+
 ---
 published: false
 layout: post
@@ -9,7 +10,7 @@ featured: false
 comments: false
 hidden: false
 title: August Garden
-
+---
 August in the Garden
 
 I was thinking this week about how I garden, that I grow things that I don’t necessarily eat. And then I realized that my dad did this.  This was especially true about watermelons.  He LOVED growing watermelons.  But he never (or maybe rarely) ate them.  He just liked the growing.  I feel I’m similar; I grow hot peppers that my family doesn’t eat and that I rarely do. I plant various lettuces but rarely get to them before they bolt. Maybe I’m lazy, or maybe I’m a better grower of slow things. 😊 I like the veg I grow, but I get more satisfaction from growing and harvesting than I do eating them.  For me, and perhaps other gardeners, it truly is the growing that is the focus and the source of my pleasure. I also love to give veg away.
