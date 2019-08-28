@@ -1,8 +1,8 @@
 ---
-published: false
+published: true
 layout: post
 author: pam
-image: assets/images/basilgimletglass_Fotor.jpg
+image: assets/images/gardenmess.jpg
 categories:
   - drinks
 featured: false
