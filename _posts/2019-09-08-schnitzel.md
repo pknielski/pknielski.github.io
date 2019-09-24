@@ -72,9 +72,11 @@ Dredge the cutlets one at a time in flour, then egg, then breadcrumbs.
 
 ![flourdredge](/assets/images/flourdredge.jpg)
 
-![eggdrip](/assets/images/eggdrip.jpg)
-
 ![egg](/assets/images/eggschnitzel.jpg)
+
+Let the excess egg drip off.
+
+![eggdrip](/assets/images/eggdrip.jpg)
 
 ![breadcrumbs](/assets/images/breadcrumbs.jpg)
 
