@@ -2,7 +2,7 @@
 published: true
 layout: post
 author: pam
-image: assets/images/donetilapia_Fotor.jpg
+image: assets/images/doneschnitzel.jpg
 categories:
   - meals
 featured: false
