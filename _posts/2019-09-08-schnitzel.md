@@ -27,18 +27,6 @@ I use pork tenderloin: flavorful, often on sale (at least, where I live), and mo
 
 ![unwrapped](/assets/images/tenderloinunwrapped.jpg)
 
-What you need
-Bread crumbs
-Pork tenderloin
-Egg-1 or 2
-Salt
-Pepper
-Flour
-
-Basically this dish requires you to pound the tenderloin into thin patties, bread, and then fry them in oil.
-
-Steps
-
 Pork tenderloin has a strip of tough material on one side, called the silverskin.  You will likely want to remove it, as it is rather chewy.  
 
 ![skin](/assets/images/tenderloinsilverskin.jpg)
@@ -57,16 +45,18 @@ Cut tenderloin on the bias (angle) to widen the surface area (when you are flatt
 
 Place wax paper on the cutting board, then put one medallion (cut piece of pork) on the paper, then cover with another piece of wax paper.
 
-![thawing](/assets/images/thawingtilapia_Fotor.jpg)
+![under](/assets/images/medallionpaper.jpg)
+
+![under2](/assets/images/porkunderpaper.jpg)
 
 If you have a mallet like this
 
-![thawing](/assets/images/thawingtilapia_Fotor.jpg)
+![mallet](/assets/images/mallet.jpg)
 
 Then use it.  If not, you can use a cast iron fry pan or other really heavy pan.  The heavier the better.
 Pound the meat, moving around the mallet/fry pan to make sure all parts of the medallion get the pound treatment. Try to make the cutlet (what it’s called once it’s flat) an even thickness.
 
-![thawing](/assets/images/thawingtilapia_Fotor.jpg)
+![cutlet](/assets/images/porkcutlet.jpg)
 
 When you are done, place on a plate and do it again.
 
@@ -80,7 +70,7 @@ One an egg or two beaten
 
 And one breadcrumbs
 
-![breadcrumbs](/assets/images/breadcrumbschnitzel.jpg)
+![breadcrumbs](/assets/images/breadcrumbs.jpg)
 
 Dredge the cutlets one at a time in flour, then egg, then breadcrumbs. 
 
