@@ -84,7 +84,7 @@ The recipe recommends putting them on a wire cooling rack over a half sheet pan 
 
 In a deep wide pot (like a Dutch oven), put about half an inch to ¾ of an inch of canola oil. Do not use olive oil. Do not use peanut oil. Canola is purer and has a higher smoke point (it can be heated to a higher temperature than olive oil). It is also neutral tasting (peanut oil and olive oil have distinctive tastes. This is great when you want those tastes.  That time is not now).
 
-Heat it over high flame. See this post (link) to check when the oil is hot.
+Heat it over high flame. See my other post on how to tell when the oil is hot enough.
 
 Carefully place one cutlet in pan then immediately (using potholders or gloves) shake the pan continuously (and carefully!) so that the oil goes over the top of the cutlet. This cooks the top and the bottom at the same time.  You will still need to flip it, but this means it won’t stay too long in the hot oil.
 
