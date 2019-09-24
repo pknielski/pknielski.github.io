@@ -33,10 +33,6 @@ Pork tenderloin has a strip of tough material on one side, called the silverskin
 
 Slip a small sharp knife under one end to start the cutting. THen grasp the end you just cut and pull up, using the knife to help it along. 
 
-![skin1](/assets/images/tenderloinpullingsilverskin1.jpg)
-
-![skin2](/assets/images/tenderloinpullingskin2.jpg)
-
 ![skin3](/assets/images/tenderloinpullingskin3.jpg)
 
 Cut tenderloin on the bias (angle) to widen the surface area (when you are flattening it, this gives you more space to flatten it).
