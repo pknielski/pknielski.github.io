@@ -56,15 +56,15 @@ Pound the meat, moving around the mallet/fry pan to make sure all parts of the m
 
 When you are done, place on a plate and do it again.
 
-When that is done, take three shallow pans and put in one some flour
+When that is done, take three shallow pans and in one put some flour
 
 ![flour](/assets/images/flourinpan.jpg)
 
-One an egg or two beaten
+in another put an egg or two, beaten
 
 ![eggwash](/assets/images/eggwash.jpg)
 
-And one breadcrumbs
+And in the last one, put breadcrumbs
 
 ![breadcrumbs](/assets/images/breadcrumbs.jpg)
 
