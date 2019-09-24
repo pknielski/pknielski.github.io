@@ -78,8 +78,6 @@ Let the excess egg drip off.
 
 ![eggdrip](/assets/images/eggdrip.jpg)
 
-![breadcrumbs](/assets/images/breadcrumbs.jpg)
-
 ![breadcrumbs2](/assets/images/breadcrumbschnitzel.jpg)
 
 The recipe recommends putting them on a wire cooling rack over a half sheet pan (jelly roll pan/cookie sheet with raised edges on all four sides) for about 5 minutes after coating to dry or something. I don’t know what that does, but you need a place to put the cutlets after you bread them so there you go.
