@@ -10,9 +10,6 @@ comments: false
 hidden: false
 title: Schnitzel
 ---
-Schnitzel
-
-![schnitzel](/assets/images/doneschnitzel.jpg)
 
 Oh, schnitzel, how do I love thee? Let me count the ways.
 
