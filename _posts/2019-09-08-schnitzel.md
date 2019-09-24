@@ -35,9 +35,9 @@ Slip a small sharp knife under one end to start the cutting. THen grasp the end 
 
 ![skin1](/assets/images/tenderloinpullingsilverskin1.jpg)
 
-![skin2](/assets/images/tenderloinpullingsilverskin2.jpg)
+![skin2](/assets/images/tenderloinpullingskin2.jpg)
 
-![skin3](/assets/images/tenderloinpullingskilverskin3.jpg)
+![skin3](/assets/images/tenderloinpullingskin3.jpg)
 
 Cut tenderloin on the bias (angle) to widen the surface area (when you are flattening it, this gives you more space to flatten it).
 
@@ -76,8 +76,6 @@ Dredge the cutlets one at a time in flour, then egg, then breadcrumbs.
 
 ![flourdredge](/assets/images/flourdredge.jpg)
 
-![eggwash](/assets/images/eggwash.jpg)
-
 ![eggdrip](/assets/images/eggdrip.jpg)
 
 ![egg](/assets/images/eggschnitzel.jpg)
@@ -90,12 +88,9 @@ In a deep wide pot (like a Dutch oven), put about half an inch to ¾ of an inch 
 
 Heat it over high flame. See this post (link) to check when the oil is hot.
 
-![thawing](/assets/images/thawingtilapia_Fotor.jpg)
-
 Carefully place one cutlet in pan then immediately (using potholders or gloves) shake the pan continuously (and carefully!) so that the oil goes over the top of the cutlet. This cooks the top and the bottom at the same time.  You will still need to flip it, but this means it won’t stay too long in the hot oil.
 
 ![fry1](/assets/images/schnitzelfry1.jpg)
-
 
 When should you flip it?  Take a look at it.  Is it golden brown when you use your tongs to lift up one side?  You can always flip it again.
 
