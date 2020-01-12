@@ -19,13 +19,34 @@ Melissa D’Arabian?___ on the Food Network wrote this recipe and boy is it good
 
 What you need:
 Country style bone in pork ribs
+
+![goulash](/assets/images/hbthawed.jpg)
+
 Carrots-1 or 2 (diced. Ok to not peel them)
 Onion-1 medium (diced)
+
+![onion](/assets/images/peeledhalvedonion.jpg)
+
 Celery-1 stalk (diced)
+
+![goulash](/assets/images/hbthawed.jpg)
+
 Tomato paste-1 tablespoon
+
+![goulash](/assets/images/hbthawed.jpg)
+
 Apple cider vinegar-2 tablespoons
+
+![vinegar](/assets/images/acvinegar.jpg)
+
 Bay leaf-1
+
+![bayleaves](/assets/images/baypackage.jpg)
+
 Chicken broth-enough to go up halfway up the side of the meat (I’ll talk more about his later, but just get a four cup box of chicken broth and you’ll be good)
+
+![goulash](/assets/images/hbthawed.jpg)
+
 Garlic-1 clove
 
 OK, so these ribs are braised.  Braising is a wonderful technique; the oven does most of the work, and the result is tender, tasty meat. Braising basically means partially submerging the meat with liquid and then putting it in a slow (i.e., low temperature) over for a couple hours. 
@@ -42,9 +63,19 @@ In your Dutch oven (or whatever you are using, although you really should have a
 
 Flip them to the next side (the ribs likely have four distinct sides that are wide enough to sit steady on the bottom of the pan). Season the side of the rib that is now on top.  Repeat until all four sides of each rib are brown.  Take them out and put them in a bowl (to contain the juices).
 
+![goulash](/assets/images/hbthawed.jpg)
+
 I hope you have diced your veg (i.e., cut them into small squares), because now you will put the onions, carrots, and celery into the pan that has the lovely brown bits on the bottom.  Make sure the heat is turned down first, as you want the veg to soften, not get brown (although if it gets brown, that’s ok). If you need a bit more oil, it’s ok to add, but there likely will be enough with both what you added at first and what came out as the fat rendered (became liquified with heat). Throw the minced garlic in after the veg get soft and stir around for a minute or less. 
 
-Now you get that tablespoon of tomato paste and put it in the pot.  Stir it around while it cooks a bit. This will get rid of the raw tomato flavor that might be a bit sharp in your dish. The recipe says around three minutes, but use your judgment.  It will start to smell a bit different (but don’t burn it!). 
+![mpbowl](/assets/images/mirepoixinbowl.jpg)
+
+![mppan](/assets/images/mirepoixinpan.jpg)
+
+![brownedveg](/assets/images/brownedveg.jpg)
+
+Now get that tablespoon of tomato paste and put it in the pot.  Stir it around while it cooks a bit. This will get rid of the raw tomato flavor that might be a bit sharp in your dish. The recipe says around three minutes, but use your judgment.  It will start to smell a bit different (but don’t burn it!). 
+
+![tomatopaste](/assets/images/tomatopaste.jpg)
 
 Add the quarter cup of apple cider vinegar and stir. You should see the brown bits on the bottom lift up; this is called deglazing the pan.
 
