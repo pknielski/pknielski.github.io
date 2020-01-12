@@ -23,13 +23,14 @@ Country style bone in pork ribs
 ![goulash](/assets/images/hbthawed.jpg)
 
 Carrots-1 or 2 (diced. Ok to not peel them)
+
 Onion-1 medium (diced)
 
 ![onion](/assets/images/peeledhalvedonions.jpg)
 
 Celery-1 stalk (diced)
 
-![goulash](/assets/images/hbthawed.jpg)
+![goulash](/assets/images/CarootsCeleryOnion_Fotor.jpg)
 
 Tomato paste-1 tablespoon
 
@@ -57,7 +58,7 @@ For this recipe (and any other braised recipe), you will want to make sure your 
 
 Pat the meat dry with a tea towel or paper towel. If the meat is damp, it will steam, lowering the temperature of the hot pan that you will be trying to brown the meat in. Your meat will not brown as much as it should to get that lovely brown color and tasty taste. Liberally (i.e., don’t hold back) sprinkle coarse salt (i.e., kosher salt) and pepper on the ribs, You can do one side, then put that side down in the pot; then you can salt and pepper the other sides.
 
-![ribsone](/assets/images/ribsbrowming.jpg)
+![ribstwo](/assets/images/ribsbrowning.jpg)
 
 What pan to use? I like a Dutch oven, which looks like this: *link* If you don’t have that, you would need a deep enough pan to contain the ribs and liquid. If you only have a stock pot, which is similar in diameter, but much taller, you can use that.  Just make sure it fits in the oven. Not great if you do all of this prep but can’t get your pot in the oven.  :D
 
@@ -67,7 +68,8 @@ In your Dutch oven (or whatever you are using, although you really should have a
 
 Flip them to the next side (the ribs likely have four distinct sides that are wide enough to sit steady on the bottom of the pan). Season the side of the rib that is now on top.  Repeat until all four sides of each rib are brown.  Take them out and put them in a bowl (to contain the juices).
 
-![ribstwo](/assets/images/ribsbrowning.jpg)
+![ribsone](/assets/images/ribsbrowming.jpg)
+
 
 I hope you have diced your veg (i.e., cut them into small squares), because now you will put the onions, carrots, and celery into the pan that has the lovely brown bits on the bottom.  Make sure the heat is turned down first, as you want the veg to soften, not get brown (although if it gets brown, that’s ok). If you need a bit more oil, it’s ok to add, but there likely will be enough with both what you added at first and what came out as the fat rendered (became liquified with heat). Throw the minced garlic in after the veg get soft and stir around for a minute or less. 
 
