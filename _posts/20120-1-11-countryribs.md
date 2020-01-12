@@ -2,7 +2,7 @@
 published: false
 layout: post
 author: pam
-image: assets/images/goulashplated.jpg
+image: assets/images/prebrothbraise.jpg
 categories:
   - meals
 featured: false
@@ -21,7 +21,7 @@ What you need:
 
 Country style bone in pork ribs
 
-![goulash](/assets/images/hbthawed.jpg)
+I oddly didn't take a pic of the package, but it will just say Country-Style Ribs on it.  Packages where I shop tend to be about 3 pounds or so.
 
 Carrots-1 or 2 (diced. Ok to not peel them)
 
@@ -79,7 +79,7 @@ I hope you have diced your veg (i.e., cut them into small squares), because now 
 
 ![brownedveg](/assets/images/brownedveg.jpg)
 
-Now get that tablespoon of tomato paste and put it in the pot.  Stir it around while it cooks a bit. This will get rid of the raw tomato flavor that might be a bit sharp in your dish. The recipe says around three minutes, but use your judgment.  It will start to smell a bit different (but don’t burn it!). 
+Now get that tablespoon of tomato paste and put it in the pot.  Stir it around while it cooks a bit. This will get rid of the raw tomato flavor that might be a bit sharp in your dish. The recipe says around three minutes, but use your judgment.  It will start to smell a bit different (but don’t burn it!). Note: the reason my tomato paste is square is because I freeze it in one tablespoon chunks in a silicone ice cube tray.  Once they are frozen, I pop them out into a freezer ziploc and thaw them as needed. No waste!
 
 ![tomatopaste](/assets/images/tomatopaste.jpg)
 
