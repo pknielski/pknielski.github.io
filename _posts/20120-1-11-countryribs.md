@@ -15,7 +15,7 @@ Have you ever seen something in the grocery labeled “country style ribs” and
 
 But then I had three and a half pounds of these ribs that didn’t look like ribs.  What to do with them? Of course, I went to the internet to see what I could see.
 
-Melissa D’Arabian?___ on the Food Network wrote this recipe and boy is it good.  I am recreating it here with step by step photos and directions, gleaned over my many times of making them.
+Melissa D’Arabian on the Food Network wrote this recipe and boy is it good.  I am recreating it here with step by step photos and directions, gleaned over my many times of making them.
 
 What you need:
 Country style bone in pork ribs
@@ -26,11 +26,11 @@ Carrots-1 or 2 (diced. Ok to not peel them)
 
 Onion-1 medium (diced)
 
-![onion](/assets/images/peeledhalvedonions.jpg)
-
 Celery-1 stalk (diced)
 
-![goulash](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+Garlic-1 clove
+
+![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
 
 Tomato paste-1 tablespoon
 
@@ -48,7 +48,6 @@ Chicken broth-enough to go up halfway up the side of the meat (I’ll talk more 
 
 ![goulash](/assets/images/hbthawed.jpg)
 
-Garlic-1 clove
 
 OK, so these ribs are braised.  Braising is a wonderful technique; the oven does most of the work, and the result is tender, tasty meat. Braising basically means partially submerging the meat with liquid and then putting it in a slow (i.e., low temperature) over for a couple hours. 
 
@@ -85,6 +84,12 @@ Now get that tablespoon of tomato paste and put it in the pot.  Stir it around w
 
 Add the quarter cup of apple cider vinegar and stir. You should see the brown bits on the bottom lift up; this is called deglazing the pan.
 
-Put your ribs back in the pot and pour chicken stock in until the ribs are half-submerged. Throw in a bay leaf and put the lid on.
+Put your ribs back in the pot 
 
-Stick it in your oven for about two hours (there isn't really any way to overcook this, unless you leave it in for 6 hours, which you won't). And there you have it-braised country-style ribs.  Aren’t you hungry? Serve with polenta (a recipe for another day) or egg noodles or mashed potatoes. 
+![prebrothbraise](/assets/images/prebrothbraise.jpg)
+
+and pour chicken stock in until the ribs are half-submerged. Throw in a bay leaf and put the lid on.
+
+Stick it in your oven for about two hours (there isn't really any way to overcook this, unless you leave it in for 6 hours, which you won't). And there you have it-braised country-style ribs. 
+
+Aren’t you hungry? Serve with polenta (a recipe for another day) or egg noodles or mashed potatoes. 
