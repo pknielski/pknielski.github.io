@@ -18,6 +18,7 @@ But then I had three and a half pounds of these ribs that didn’t look like rib
 Melissa D’Arabian on the Food Network wrote this recipe and boy is it good.  I am recreating it here with step by step photos and directions, gleaned over my many times of making them.
 
 What you need:
+
 Country style bone in pork ribs
 
 ![goulash](/assets/images/hbthawed.jpg)
@@ -34,7 +35,7 @@ Garlic-1 clove
 
 Tomato paste-1 tablespoon
 
-![goulash](/assets/images/hbthawed.jpg)
+![tomatopaste](/assets/images/tomatopaste.jpg)
 
 Apple cider vinegar-2 tablespoons
 
@@ -46,7 +47,7 @@ Bay leaf-1
 
 Chicken broth-enough to go up halfway up the side of the meat (I’ll talk more about his later, but just get a four cup box of chicken broth and you’ll be good)
 
-![goulash](/assets/images/hbthawed.jpg)
+![chickenbroth](/assets/images/chickenbroth.jpg)
 
 
 OK, so these ribs are braised.  Braising is a wonderful technique; the oven does most of the work, and the result is tender, tasty meat. Braising basically means partially submerging the meat with liquid and then putting it in a slow (i.e., low temperature) over for a couple hours. 
