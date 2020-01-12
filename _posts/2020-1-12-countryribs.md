@@ -8,7 +8,7 @@ categories:
 featured: false
 comments: false
 hidden: false
-title: Country-Style Braised Ribs
+title: Country-Style Braised Pork Ribs
 ---
 
 Have you ever seen something in the grocery labeled “country style ribs” and wondered what they are and what you can do with them? I did too, until I ran across a buy one get one free offer at my grocery and couldn’t pass up such a bargain.
@@ -19,7 +19,7 @@ Melissa D’Arabian on the Food Network wrote this recipe and boy is it good.  I
 
 What you need:
 
-Country style bone in pork ribs
+Country style bone-in pork ribs
 
 I oddly didn't take a pic of the package, but it will just say Country-Style Ribs on it.  Packages where I shop tend to be about 3 pounds or so.
 
