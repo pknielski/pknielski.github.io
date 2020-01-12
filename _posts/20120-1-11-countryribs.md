@@ -30,7 +30,7 @@ Onion-1 medium (diced)
 
 Celery-1 stalk (diced)
 
-![goulash](/assets/images/CarootsCeleryOnion_Fotor.jpg)
+![goulash](/assets/images/CarrotCeleryOnion_Fotor.jpg)
 
 Tomato paste-1 tablespoon
 
