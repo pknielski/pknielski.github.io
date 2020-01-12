@@ -19,7 +19,7 @@ Melissa D’Arabian on the Food Network wrote this recipe and boy is it good.  I
 
 What you need:
 
-Country style bone-in pork ribs
+Country-style bone-in pork ribs
 
 I oddly didn't take a pic of the package, but it will just say Country-Style Ribs on it.  Packages where I shop tend to be about 3 pounds or so.
 
