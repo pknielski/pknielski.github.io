@@ -8,7 +8,7 @@ categories:
 featured: false
 comments: false
 hidden: false
-title: Country-style Braised Ribs
+title: Country-Style Braised Ribs
 ---
 
 Have you ever seen something in the grocery labeled “country style ribs” and wondered what they are and what you can do with them? I did too, until I ran across a buy one get one free offer at my grocery and couldn’t pass up such a bargain.
@@ -62,7 +62,7 @@ Pat the meat dry with a tea towel or paper towel. If the meat is damp, it will s
 
 ![ribstwo](/assets/images/ribsbrowning.jpg)
 
-What pan to use? I like a Dutch oven, which looks like this: *link* If you don’t have that, you would need a deep enough pan to contain the ribs and liquid. If you only have a stock pot, which is similar in diameter, but much taller, you can use that.  Just make sure it fits in the oven. Not great if you do all of this prep but can’t get your pot in the oven.  :D
+What pan to use? I like a Dutch oven, which is a wide, medium height pot with two handles.  If you don’t have that, you would need a deep enough pan to contain the ribs and liquid. If you only have a stock pot, which is similar in diameter, but much taller, you can use that.  Just make sure it fits in the oven. Not great if you do all of this prep but can’t get your pot in the oven.  :D
 
 In your Dutch oven (or whatever you are using, although you really should have a Dutch oven. I have feelings about this, obviously.), set the heat on high and coat the bottom of the pot with olive oil. Let it get shimmery (see this link for what it should look like). Once it is hot, place the ribs, seasoned-side down, in the pan.  Let them sit there getting brown. When are they done (i.e., browned)? When you can loosen them easily from the pan with tongs.  If they are hard to budge, they are not browned.  The browning process (i.e., Maillard reaction *link*) results in that loosening of the bond between the meat and the pan.  
 
