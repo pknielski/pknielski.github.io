@@ -17,6 +17,8 @@ But then I had three and a half pounds of these ribs that didn’t look like rib
 
 Melissa D’Arabian on the Food Network wrote this recipe and boy is it good.  I am recreating it here with step by step photos and directions, gleaned over my many times of making them.
 
+First: preheat oven to 350 degrees.
+
 What you need:
 
 Country-style bone-in pork ribs
@@ -64,11 +66,11 @@ Pat the meat dry with a tea towel or paper towel. If the meat is damp, it will s
 
 What pan to use? I like a Dutch oven, which is a wide, medium height pot with two handles.  If you don’t have that, you would need a deep enough pan to contain the ribs and liquid. If you only have a stock pot, which is similar in diameter, but much taller, you can use that.  Just make sure it fits in the oven. Not great if you do all of this prep but can’t get your pot in the oven.  :D
 
-In your Dutch oven (or whatever you are using, although you really should have a Dutch oven. I have feelings about this, obviously.), set the heat on high and coat the bottom of the pot with olive oil. Let it get shimmery (see this link for what it should look like). Once it is hot, place the ribs, seasoned-side down, in the pan.  Let them sit there getting brown. When are they done (i.e., browned)? When you can loosen them easily from the pan with tongs.  If they are hard to budge, they are not browned.  The browning process (i.e., Maillard reaction *link*) results in that loosening of the bond between the meat and the pan.  
+In your Dutch oven (or whatever you are using, although you really should have a Dutch oven. I have feelings about this, obviously.), set the heat on high and coat the bottom of the pot with olive oil. Let it get shimmery (see my post about this). Once it is hot, place the ribs, seasoned-side down, in the pan.  Let them sit there getting brown. When are they done (i.e., browned)? When you can loosen them easily from the pan with tongs.  If they are hard to budge, they are not browned.  The browning process (i.e., Maillard reaction) results in that loosening of the bond between the meat and the pan.  
 
 ![ribsthree](/assets/images/ribsbrowning2.jpg)
 
-Flip them to the next side (the ribs likely have four distinct sides that are wide enough to sit steady on the bottom of the pan). Season the side of the rib that is now on top.  Repeat until all four sides of each rib are brown.  Take them out and put them in a bowl (to contain the juices).
+Flip them to the next side (the ribs likely have four distinct sides that are wide enough to sit steadily on the bottom of the pan). Season the side of the rib that is now on top.  Repeat until all four sides of each rib are brown.  Take them out and put them in a bowl (to contain the juices).
 
 ![ribsone](/assets/images/ribsbrowming.jpg)
 
@@ -81,9 +83,9 @@ I hope you have diced your veg (i.e., cut them into small squares), because now 
 
 ![brownedveg](/assets/images/brownedveg.jpg)
 
-Now get that tablespoon of tomato paste and put it in the pot.  Stir it around while it cooks a bit. This will get rid of the raw tomato flavor that might be a bit sharp in your dish. The recipe says around three minutes, but use your judgment.  It will start to smell a bit different (but don’t burn it!). 
+Now get that tablespoon of tomato paste and put it in the pot.  Stir it around while it cooks a bit. This will get rid of the raw tomato flavor that might be a bit sharp in your dish. The recipe says around three minutes, but use your judgment.  It will start to smell a bit different (watch that it doesn't burn). 
 
-Add the quarter cup of apple cider vinegar and stir. You should see the brown bits on the bottom lift up; this is called deglazing the pan.
+Add the quarter cup of apple cider vinegar and stir. You should see the brown bits on the bottom lift up; this is called deglazing the pan. It doesn't always have to be apple cider vinegar; you can deglaze with wine or lemon juice or anything acidic.
 
 Put your ribs back in the pot 
 
