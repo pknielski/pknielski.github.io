@@ -29,6 +29,8 @@ Filet: very lean (low marbling) so you have to make sure not to overcook it as i
 
 There are other cuts, but these seem to be what’s common in the grocery, at least where I live.
 
+Pay attention to the thickness of the steak. I've been seeing lately "thin cut" steaks; not sure why. The thinner the steak, the quicker it will cook, making it easy to overcook.  
+
 So this one is labeled on the package as a New York strip steak. 
 
 I have seen it recommended to let the meat come to room temperature before cooking.  It probably matters on some level, but if you don’t have time, don’t worry about it.
