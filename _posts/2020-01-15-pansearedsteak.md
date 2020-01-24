@@ -2,7 +2,7 @@
 published: false
 layout: post
 author: pam
-image: assets/images/prebrothbraise.jpg
+image: assets/images/donesteak.jpg
 categories:
   - meals
 featured: false
@@ -35,21 +35,35 @@ Pay attention to the thickness of the steak. I've been seeing lately "thin cut" 
 
 So this one is labeled on the package as a New York strip steak. 
 
+![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+
 I have seen it recommended to let the meat come to room temperature before cooking.  It probably matters on some level, but if you don’t have time, don’t worry about it.
 
 Pat it dry with paper towels or tea towel.
 
+![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+
 Sprinkle liberally (generously) with coarse (kosher) salt and pepper. Some people like steak seasoning or Lawry’s. Those are fine, too.
 You will need a pan that will stand up to high heat.  The best for this, in my opinion, is cast iron.  Everyone should have a cast iron pan.
+
+![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
 
 Turn on your oven hood fan and put the pan on the stove with high heat. Sprinkle coarse salt on the pan. 
 When it’s hot (hold your hand over it or toss a drop of water on it to see if it immediately evaporates), put your steak in it. It will sizzle in a very yummy way.
 
+![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+
 Use tongs to both feel the density of the steak (more on this later) and to lift the edge of the steak to check the browning. 
+
+![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
 
 When it's brown enough, flip it over.  Feel free to cut into the  steak to check its doneness; it's no sin. You want it the way you want it, right?
 
+![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+
 When it's done, take it out, and set it on a plate or cutting board.  Tent loosely with foil (this means make a tent-like cover for the steak. Don't tuck it in or fold it around the steak; you want air to circulate) and let rest for about 5-10 minutes,  The foil will also keep the heat in. 
+
+![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
 
 And...you're done!
 
