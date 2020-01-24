@@ -23,7 +23,7 @@ Steak
 
 What kind? Well, it’s really up to you, but here’s a primer about my favorite choices.
 
-Kansas City/New York strip-are these different? Maybe? In my supermarket, it’s just called strip steak. This is a longish medium marbled (fat lines throughout the meat that adds to its tastiness) cut.
+Kansas City/New York strip-are these different? Maybe? In my supermarket, it’s sometimes called New York strip steak, sometimes just strip steak. This is a longish medium marbled (fat lines throughout the meat that adds to its tastiness) cut.
 
 Rib-eye: My favorite for flavor (very marbled) but fatty and not to everyone’s taste.
 
@@ -41,12 +41,10 @@ I have seen it recommended to let the meat come to room temperature before cooki
 
 Pat it dry with paper towels or tea towel.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
-
 Sprinkle liberally (generously) with coarse (kosher) salt and pepper. Some people like steak seasoning or Lawry’s. Those are fine, too.
 You will need a pan that will stand up to high heat.  The best for this, in my opinion, is cast iron.  Everyone should have a cast iron pan.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![seasoned](/assets/images/seasonedsteak.jpg)
 
 Turn on your oven hood fan and put the pan on the stove with high heat. Sprinkle coarse salt on the pan. 
 When it’s hot (hold your hand over it or toss a drop of water on it to see if it immediately evaporates), put your steak in it. It will sizzle in a very yummy way.
