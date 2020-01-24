@@ -35,7 +35,7 @@ Pay attention to the thickness of the steak. I've been seeing lately "thin cut" 
 
 So this one is labeled on the package as a New York strip steak. 
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![steak](/assets/images/steakraw.jpg)
 
 I have seen it recommended to let the meat come to room temperature before cooking.  It probably matters on some level, but if you don’t have time, don’t worry about it.
 
