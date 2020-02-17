@@ -11,8 +11,6 @@ hidden: false
 title: Pan-Seared Steak
 ---
 
-Pan-Seared Steak
-
 My son, when I asked him what I should write about for my next blog post, suggested steak.  Guess what we had that next night?
 
 This is a good technique for when it's too cold to grill outside or you don't actually have a grill.
