@@ -53,13 +53,17 @@ When it’s hot (hold your hand over it or toss a drop of water on it to see if 
 
 ![saltpan](/assets/images/saltpan.jpg)
 
+Listen to it sizzle!
+
+![steakpan](/assets/images/steakinpan.jpg)
+
 Use tongs to both feel the density of the steak (more on this later) and to lift the edge of the steak to check the browning. 
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![reststeak](/assets/images/restingsteak.jpg)
 
 When it's brown enough, flip it over.  Feel free to cut into the  steak to check its doneness; it's no sin. You want it the way you want it, right?
 
-![steakpan](/assets/images/steakinpan.jpg)
+
 
 When it's done, take it out, and set it on a plate or cutting board.  Tent loosely with foil (this means make a tent-like cover for the steak. Don't tuck it in or fold it around the steak; you want air to circulate) and let rest for about 5-10 minutes,  The foil will also keep the heat in. 
 
