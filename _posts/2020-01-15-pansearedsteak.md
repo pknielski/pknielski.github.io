@@ -57,13 +57,15 @@ Use tongs to both feel the density of the steak (more on this later) and to lift
 
 When it's brown enough, flip it over.  Feel free to cut into the  steak to check its doneness; it's no sin. You want it the way you want it, right?
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![steakpan](/assets/images/steakinpan.jpg)
 
 When it's done, take it out, and set it on a plate or cutting board.  Tent loosely with foil (this means make a tent-like cover for the steak. Don't tuck it in or fold it around the steak; you want air to circulate) and let rest for about 5-10 minutes,  The foil will also keep the heat in. 
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![foiltent](/assets/images/foiltent.jpg)
 
 And...you're done!
+
+![done](/assets/images/donesteak.jpg)
 
 So, checking the density/degree of doneness by touch.  This will come with practice, but there’s no reason you shouldn’t try now.  Raw meat is kind of bouncy when you press on it.  It becomes less so as it cooks. In fact, it gets firm, and when it’s well done, it is very firm.  If you don’t like it well done, then you should learn how to tell doneness before it gets to that point.
 
