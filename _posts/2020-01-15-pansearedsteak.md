@@ -49,7 +49,9 @@ You will need a pan that will stand up to high heat.  The best for this, in my o
 Turn on your oven hood fan and put the pan on the stove with high heat. Sprinkle coarse salt on the pan. 
 When it’s hot (hold your hand over it or toss a drop of water on it to see if it immediately evaporates), put your steak in it. It will sizzle in a very yummy way.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![ironpan](/assets/images/castironpan.jpg)
+
+![saltpan](/assets/images/saltpan.jpg)
 
 Use tongs to both feel the density of the steak (more on this later) and to lift the edge of the steak to check the browning. 
 
