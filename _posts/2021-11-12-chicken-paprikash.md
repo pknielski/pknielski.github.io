@@ -2,7 +2,7 @@
 published: false
 layout: post
 author: pam
-image: assets/images/ThighsinPanFinished.jpg
+image: assets/images/thighsinpanfinished.jpg
 categories:
   - meals
 featured: false
