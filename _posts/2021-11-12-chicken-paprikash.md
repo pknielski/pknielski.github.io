@@ -20,7 +20,7 @@ What do you need:
 
 Chicken thighs, bone in and skin on. Why? Because of the flavor of the skin and bones adds to the dish. If you don’t want to use bone in skin on thighs, feel free to use the boneless ones. Just don’t use chicken breasts; the flavor will be lacking. You could also use legs, if you like.
 
-![cco](/assets/images/thighsfinishedinpan.jpg)
+![cco](/assets/images/RawThighsinPan.jpg.jpg)
 
 Paprika-I use a combo of sweet and smoked Hungarian paprika from Penzeys. If you don’t like the smokiness, just use sweet. Or you could just use smoky. It’s really up to you. I like the combo.
 
