@@ -34,7 +34,7 @@ Onions-diced
 
 Crushed tomatoes-canned works well. You can also use diced, but I would use petite dice, as the regular diced can be pretty chunky. However, if you like it that way, go for it! Make food the way you like!
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![cco](/assets/images/CrushedTomsOneCup.jpg)
 
 Garlic-a couple three cloves, more or less, whatever you prefer.
 
@@ -60,7 +60,7 @@ Equipment
 
 Oven proof skillet-I like cast iron. You want it to have straight sides, not sloped, so the sauce doesn’t slosh out.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![cco](/assets/images/Cast Iron Skillet.jpg)
 
 That’s it!
 
