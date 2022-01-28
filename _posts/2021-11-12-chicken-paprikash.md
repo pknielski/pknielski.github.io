@@ -20,15 +20,17 @@ What do you need:
 
 Chicken thighs, bone in and skin on. Why? Because of the flavor of the skin and bones adds to the dish. If you don’t want to use bone in skin on thighs, feel free to use the boneless ones. Just don’t use chicken breasts; the flavor will be lacking. You could also use legs, if you like.
 
+![cco](/assets/images/PackagedThighs.jpg)
+
 ![cco](/assets/images/RawThighsinPan.jpg)
 
 Paprika-I use a combo of sweet and smoked Hungarian paprika from Penzeys. If you don’t like the smokiness, just use sweet. Or you could just use smoky. It’s really up to you. I like the combo.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![cco](/assets/images/Paprika.jpg)
 
 Onions-diced
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![cco](/assets/images/DicedOnions.jpg)
 
 Crushed tomatoes-canned works well. You can also use diced, but I would use petite dice, as the regular diced can be pretty chunky. However, if you like it that way, go for it! Make food the way you like!
 
