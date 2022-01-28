@@ -60,7 +60,7 @@ Equipment
 
 Oven proof skillet-I like cast iron. You want it to have straight sides, not sloped, so the sauce doesn’t slosh out.
 
-![cco](/assets/images/Cast Iron Skillet.jpg)
+![cco](/assets/images/Cast Iron Skillet.jpeg)
 
 That’s it!
 
