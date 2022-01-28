@@ -58,7 +58,7 @@ Egg noodles-you can also use spaetzle or other types of pasta-ish things.
 
 Equipment
 
-Oven proof skillet-I like cast iron. You want it to have straight sides, not sloped, so the sauce doesn’t slosh out.
+Oven proof skillet-I like cast iron. You want it to have mostly straight sides, not sloped, so the sauce doesn’t slosh out. You can also use a Dutch oven or stainless steel pan. Don't use aluminum; the acid in the tomatoes reacts with the material, which can impact flavor and your pan's integrity.
 
 ![cco](/assets/images/CastIronSkillet.jpg)
 
