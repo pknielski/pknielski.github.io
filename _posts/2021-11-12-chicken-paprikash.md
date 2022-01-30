@@ -76,7 +76,7 @@ Sprinkle salt and pepper on the side that is facing up. You’ll get the other s
 
 Put your skillet on the stove and put the flame on medium high. Let it get hot, then put in about a tablespoon of butter and a tablespoon of canola or olive oil. When it shimmers (see video here), carefully place your thighs skin side down in the pan. Don’t crowd them; that will lower the temperature and steam the skin rather than browning it.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![cco](/assets/images/ThighsinPanSideOne.jpg)
 
 Feel free to move the meat around and look underneath it. Sometimes you want to not move meat as you are looking for the Maillard reaction (see here). Here, however, the butter and chicken fat make for a hot fat frying situation (I just made that up).
 
@@ -84,7 +84,7 @@ Feel free to move the meat around and look underneath it. Sometimes you want to 
 
 When it looks like this
 
-![cco](/assets/images/ThighsinPanSideOne.jpg)
+![cco](/assets/images/ThighsinPanFinished.jpg.jpg)
 
 Turn it over
 
