@@ -10,11 +10,9 @@ comments: false
 hidden: false
 title: Chicken Paprikash
 ---
-Chicken Paprikash
+This sounds fancy, but it’s really easy. True comfort food.
 
-This sounds fancy, but it’s really easy. In this post, I’ve cobbled together a couple different recipes. I often do this, as sometimes I don’t have an ingredient, for example, or I don’t want potatoes in my paprikash, but the recipe has some approaches I like.
-
-![cco](/assets/images/thighsinpanfinished.jpg.jpg)
+In this post, I’ve cobbled together a couple different recipes. I often do this, as sometimes I don’t have an ingredient, for example, or I don’t want potatoes in my paprikash, but the recipe has some approaches I like.
 
 What do you need:
 
