@@ -88,15 +88,9 @@ When it looks like this
 
 Turn it over
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
-
 The other side won’t look like this side when it’s done as there’s no (or little) fat/skin on it. No worries; just make it look brown-ish.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
-
-Take out the thighs when they are brown on both sides and put them on a plate. Finish browning the rest of them. 
-
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+Take out the thighs when they are brown on both sides and put them on a plate. Finish browning the rest of them if you had two batches.
 
 Now turn down the heat to medium low and add a lump of butter (maybe around a tablespoon). 
 
@@ -140,5 +134,5 @@ Basically you are done at this point. You can put the thighs back in the pan, or
 
 And there you have it-chicken paprikash.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![cco](/assets/images/ThghsinPanFinished.jpg.jpg)
 
