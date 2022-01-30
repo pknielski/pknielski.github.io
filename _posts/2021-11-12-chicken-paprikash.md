@@ -84,7 +84,7 @@ Feel free to move the meat around and look underneath it. Sometimes you want to 
 
 When it looks like this
 
-![cco](/assets/images/ThighsinPanFinished.jpg.jpg)
+![cco](/assets/images/ThighFlipThreeQuarters.jpg)
 
 Turn it over
 
