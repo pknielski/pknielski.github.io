@@ -12,7 +12,7 @@ title: Chicken Paprikash
 ---
 Chicken Paprikash
 
-This sounds fancy, but it’s really easy. In this recipe, I’ve cobbled together a couple different recipes. I often do this, as sometimes I don’t have an ingredient, for example, or I don’t want potatoes in my paprikash, but the recipe has some approaches I like.
+This sounds fancy, but it’s really easy. In this post, I’ve cobbled together a couple different recipes. I often do this, as sometimes I don’t have an ingredient, for example, or I don’t want potatoes in my paprikash, but the recipe has some approaches I like.
 
 ![cco](/assets/images/thighsinpanfinished.jpg.jpg)
 
@@ -38,7 +38,7 @@ Crushed tomatoes-canned works well. You can also use diced, but I would use peti
 
 Garlic-a couple three cloves, more or less, whatever you prefer.
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![cco](/assets/images/MincedGarlic.jpg)
 
 Sour cream-this is what makes paprikash great. It tones down the bite of the paprika and makes a lovely creamy sauce.
 
@@ -84,7 +84,7 @@ Feel free to move the meat around and look underneath it. Sometimes you want to 
 
 When it looks like this
 
-![cco](/assets/images/CarrotCeleryOnion_Fotor.jpg)
+![cco](/assets/images/ThighsinPanSideOne.jpg)
 
 Turn it over
 
